@@ -1,0 +1,29 @@
+- Welcoming prayer (Keating)
+- Section 1 Inner process of change
+  collapsed:: true
+	- *metanoiete* Important? The difference of translation has had lasting influence.
+	- This is Jesus "thinking outside the box"
+	- repentance: negative, Puritan. Leads to religious wars.
+	- allows for openness, tolerance, instead of just moralistic.
+	- issue of transformation --> the likeness of Christ.
+	- Church is challenged to change.
+	- Capitalism: companies that don't change, competitors will surpass. Change is critical.
+	- Sometimes "senior people" don't want to change? When we were younger it was easier to change (adjust).
+	- traditionally church has started with **guilt** and **shame**
+	- How much of an impact one person made, i.e. Jerome.
+		- Was this male powers wanted to enforce control?
+- Section 2 Creation as both Good and New
+	- Seasonality of things. Time for fallow and time for buds, ... times when it's just survival. That's not a time for talking about change. Also true in culture.
+	- We are in a time that is so crappy, so divided, a sign that it's time for change?
+	- Global thing: email son moved to Japan. Couple had a baby. In Japan mothers stay in hospital 7 days. Husband may visit 2x's. No others allowed to interrupt bonding of mother/child.
+	- External shows of piety are not appropriate, things put out for sale.
+	- Early founding of US as country beloved of God. "City on a Hill".
+	- What is the church doing about climate change? (cf. Jesus's use of seeds and growth [nature]). Recycling? What are we doing?
+	- Faith is growth. **Mustard seed**. That builds the church, grows the church. Balance a concern for finances with concern for "faith growth". It is times of stasis that there is a focus on finances.
+- Section 3 Story line of grace
+	- Upgrading a phone, disruptions to schedule, but we can intellectually know that change is important. "I need time to reflect on it to adjust."
+	- (she) worked for a Presbyterian church. Board dominated by businessmen. New pastor changed the order of agenda at regular meetings. He put $ as the last item. They looked at things differently; they dealt with ministry first. He kept preaching, "We need to have faith, first of all."
+	- cf. concept of reporting could include: how many attended classes? how many special events? How many communions? How many households visited or spoken to?
+	- Change may require adjustments in physical space.
+	- Young people know they don't know a lot of things. (Failure of the parents not teaching them things?) Need for mentoring. Making change, telling time, ... first apartment on own ...
+- Section 4

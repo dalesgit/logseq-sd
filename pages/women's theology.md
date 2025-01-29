@@ -1,0 +1,56 @@
+- Currently, the group is discussing *Crones Don't Whine: Concentrated Wisdom for Juicy Women, *by Jean Shinoda Bolen. Forget about getting old, aging gracefully is all about perspective. As Dr. Bolen explains, crone years are "growing" years in women's lives. In this new stage, women can finally devote their time, energy, and creativity to what really matters to them.
+- PREVIOUS BOOKS (in the order in which they were read):
+- **“God’s Joyful Surprise”** by Sue Monk Kidd
+- **“The Cup of Our Life”** by Joyce Rupp
+- **“When the Heart Waits”** by Sue Monk Kidd
+- **“The Dance of the Dissident Daughter”**  by Sue Monk Kidd
+- **“When God was a Woman”** by Merlin Stone (Winter 2007-2008)
+- **“The Circle of Stones”** by Judith Duerk (Spring – Summer 2008)
+- **“Hidden Women of the Gospels”** by Kathy Coffey (Summer – Fall 2008)
+- **“The Gospels of Mary”** by Marvin Meyer
+- **“Proverbs of Ashes”** by Rita Nakashima Brock and Rebecca Ann Parker
+- **“A Woman’s Journey to God”** by Joan Borysenko
+- **“Open the Door”** by Joyce Rupp
+- **“I Will Not Die an Unlived Life**” by Dawn Markova
+- **“The Feminine Face of God” **by Sherry Anderson & Patricia Hopkins
+- **“Goddess Shift: Women Leading for a Change”**  Edited by Stephanie Marhon
+- **“Goddesses in Everywoman”** by Jean Shinoda Bolen
+- **"Anatomy of the Spirit"** by Caroline Myss
+- **“The Faith Club” **by Ranya Idliby, Suzanne Oliver, Priscilla Warner
+- **“The Circle Continues”** by Judith Duerk
+- **“Women, Spirituality and Transformative Leadership”** edited by Kathe Schaff, Kay Lindahl, Kathleen Hurty and Rev. Guo Cheen
+- **“Women’s Spirituality: Power and Grace”** by Mary Fghaulkner
+- **“Womanspirit Rising”** edited by Carol Christ & Judith Plaskow
+- **“The Meaning of Mary Magdalene”** by Cynthia Bourgeault
+- **“This Will Be Remembered of Her”** by Megan McKenna
+- **“Daring Greatly”** by Brene’ Brown
+- **“The Gifts of Imperfection”** by Brene’ Brown
+- **“The Magdalene Moment” **by Joanna Manning
+- **“Between the Dark and the Daylight”** by Joan Chittester
+- **“Becoming Wise”** by Krista Tippett
+- **“Rising Strong”** by Brene Brown
+- **“Taking the Leap”** by Pema Chodron
+- **“The Grace in Aging”** by Kathleen Singh
+- **“Hallelujah, Anyway”** by Anne Lamott
+- **“Learning to Walk in the Dark”** by Barbara Brown Taylor
+- **“Love is Stronger than Death”** by Cynthia Bourgeoult
+- **“Crossing to Avalon”** by Jean Shinoda Bolen
+- **"The Chocolate Cake Sutra" **by Geri Larkin
+- **"Radical Spirit" **by Joan Chittester
+- **"Boundless Compassion"** by Joyce Rupp
+- **"Etty Hillesum: A Life Transformed" **by Patrick Woodhouse
+- **"Braving the Wilderness"** by Brene' Brown
+- **"Wild Mercy"** by Mirabai Starr
+- **"Holy Envy" **by Barbara Brown Taylor
+- **"Untie the Strong Woman"** by Clarissa Pinkola Estes
+- **"White Fragility"** by Robin DiAngelo
+- **"This is Woman's Work"** by Dominique Christina
+- **"The Time Is Now"** by Joan Chittester
+- ***"Entering the Castle"*** by Caroline Myss
+- **"Cassandra Speaks" **by Elizabeth Lesser
+- **"With or Without God"** by Greta Vosper
+- **"Church of the Wild"** by Victoria Loorz
+- **"God is a Black Woman"** by Christena Cleveland
+- **"When God Was a Woman"** by Merlin Stone
+- **"Whatever Works: Feminists of Faith Speak**, edited by Trista Hendren and Pat Daly
+- **"Crones Don't Whine,"** by Jean Shinoda Bolen

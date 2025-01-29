@@ -1,0 +1,5 @@
+- Each of us is gathered here this morning for a variety of reasons. Although there’s not a lot of youngsters, in other places, I’ve been it was the parents who told the young people that they would be in church. Others are here because it’s what they do every Sunday and they may even be aware that after the Christmas festivities, there is often a drop off in attendance.
+- For myself, there is the fact that father Peter had sent me a list of who would celebrate and preach through February and March. This was one of my Sundays and I make a concerted effort to do what I said I would do.
+- In the early centuries of the church on the day known as theophany or more recently epiphany parenthesis in the eastern orthodox tradition, people would be in church because it was one of the most important festival days of the year, much more important than Christmas, for example.
+- One of us this weekend is in church because he wants to be baptized.
+-

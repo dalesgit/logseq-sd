@@ -1,0 +1,74 @@
+- [[SD Training Nov 14]]
+- [[SD Training Nov. 21]]
+- # Verbatim
+	- ((673f916c-7481-4f9f-b96f-8b58b44f3ba9))
+	- ![Epiphany_Cycle_-_Oct_27_2022_-_7-31_PM_1733345955829_0-rotated.pdf](../assets/Epiphany_Cycle_-_Oct_27_2022_-_7-31_PM_1733345955829_0-rotated_1733346438245_0.pdf)
+	- Craig
+	  collapsed:: true
+		- ![Verbatim 1 - Craig Sefa.pdf](../assets/Verbatim_1_-_Craig_Sefa_1733345866184_0.pdf)
+			- struggle with image of God as all controlling vs. loving
+			- Allah another God
+			- thinking in the moment as pastor and theologican
+			- wished he'd asked more about her feelings
+			- wife responded at a more **emotional** level
+			- He wants to give guiding advice.
+			- He wants to be able to find a different SD way. (Jesuit who told him that Confession is never about looking backward with regret but about finding a way forward.)
+			- He recognizes intellectualizing is a trigger for him.
+			- **Linda**: how do we deal with having "triggers" ? **Do less about thinking about what's going on and paying more attention to what's going on in the moment** What happens when we start mirroring?
+			- What was your intention?  Could have been asked of the "D"
+			- **Cherrie**: Do ritual with the "feeling". e.g. "do something with the necklace"
+			- **Craig**: She is Presbyterian and I am Methodist.
+			- **Linda**: What in your heart would make this right with Jesus? Echo to her (D)  the love for Jesus and her contrition.
+			- **Danny**: "Judas" is a trigger for me. Judas rabbit hole.
+			- **Nina**: she didn't come to you for SD, but for pastoral care. He delivered on that. Pastoral care: give comfort or confrontation. She expects to be able to use SD in the call is pastor.
+			- **Craig**: what is the goal as SD? Not care?
+			- **Linda**: "Being OK with what is." Pastoral = give comfort. In SD allow people to be comforted by **God**. Empowering rather than giving them something
+	- Shea
+	  collapsed:: true
+		- ![Verbatim_Shea_Watts.pdf](../assets/Verbatim_Shea_Watts_1733345912707_0.pdf)
+			- fellow musician, feeling alienated from church
+			- "tell me more"
+			- D is "conservative"
+			- whatever politics, can worship together
+			- traditional music, he gets out of his musician head
+			- **Linda**: What is your **job** as a spiritual director? Shea: to listen. to ask appropriate question that promote discovering God's place in our world.
+			- **Linda**: "tell me more about what it feels like to be an outsider" is an excellent SD question.
+			- The issue of mixture of politics in our interactions. What would that look like? as a response.
+			- Could have reflected back his statement about the different backgrounds in the D (D7)
+			- **Linda**: possibility of being in a dual role and possibility of being **patronizing**
+	- Esther
+	  collapsed:: true
+		- ![Hethcox verbatim.pdf](../assets/Hethcox_verbatim_1733345928943_0.pdf)
+			- PhD at UNC, from Spain, "queer"
+			- "Is there a word that comes to mind ... **Linda**: "Gold star"
+			- D hearing "love" in a personal way
+			- challenge: to not respond in effort to heal -- pastors vs. spiritual directors
+			- **Linda**: what happened after this? **Esther**: warmth and affection.
+			- **Linda**: Is there a place for blending pastoring and SD?
+			- **Nina**: conversation 35 years. woman said, "My daughter's going to hell." At that moment she needed a pastor's authority. SD could have come later? Times when pastoral authority takes precedent.
+			- **Linda**: discern in own tradition. "Follow the bicycle" i.e. let the conversation lead.
+			- **Esther**: There was a lot of my history in this conversation.
+			- **Linda**: Esther could have reflected back to her that she sees and hears a tremendous **love**.
+			- **Linda**: ... descriptions of God's love. Say more about that.
+			- Cherrie seems like a very insightful and experienced SD (psychotherapy?)
+			-
+	- Alison (updatedgh)
+	  collapsed:: true
+		- ![alison-verbatim template updated.pdf](../assets/alison-verbatim_template_updated_1733345944127_0.pdf)
+			- politics and SD
+			- **Linda:** asking the D to articulate what they **don't believe**
+			- **Alison**: this was a totally **new way** of exchanging with this person. She felt excited about it.
+			- **Linda**: good work at mostly just reflecting back
+			- **Linda:** I love what you did here!
+			- Alison was alright about referring to Pastor Joe -- no ownership or defensiveness
+			- **Linda**: In SD we believe that you have within you to answer these questions.
+			- Could have asked: "Why is it so important to you that you not be alone here."
+			- **Linda**: Where did it go after D10.
+			- **Alison**: there was a time that he has felt very alone in the church. He is perhaps moving past that now. He is still coming to the church for healing. (He needed to tell the story again.)
+- # Discussion
+	- Nina has had pneumonia
+	- Linda: one day at a time (husband cancer)
+	- Christine (Ignatian) will be teaching next.
+	-
+- # Notes
+-

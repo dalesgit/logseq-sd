@@ -1,0 +1,2 @@
+- **10:38** [[technical]] :  [How To Make A Hanging Storage Basket - AppleGreen Cottage](https://www.applegreencottage.com/how-to-make-fabric-hanging-basket/)
+- **12:25** [[technical]] [[kindle]] :  [How to Get EPUB Books on Kindle: The Ultimate Guide](https://kindlepreneur.com/epub-to-kindle/)

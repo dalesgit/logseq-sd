@@ -1,0 +1,4 @@
+- **17:42** [[suffering]] :  [How do different religions respond to suffering?](https://home.snu.edu/~hculbert/suffer.htm)
+- **17:45** [[suffering]] :  [Mission Frontiers - How the World Religions View Suffering](https://www.missionfrontiers.org/issue/article/how-the-world-religions-view-suffering)
+- [[@Problems of suffering in religions of the world]]
+-

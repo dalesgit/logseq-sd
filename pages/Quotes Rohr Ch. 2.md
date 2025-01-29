@@ -1,0 +1,8 @@
+- After all, Jesus is not talking about joining or excluding any group; rather, he is describing the “Way” by which all humans and all religions must allow matter and Spirit to operate as one.
+- Faith at its essential core is accepting that we are accepted!
+- The core message of the Incarnation of God in Jesus is that the Divine Presence is here, in us and in all of creation, and not only “over there” in some far-off realm.
+- Too often this obsession became a pious substitute for actually following what he taught—he did ask us several times to follow him, and never once to worship him.
+- Have you ever noticed that the expression “the light of the world” is used to describe the Christ (John 8:12), but that Jesus also applies the same phrase to us? (Matthew 5:14, “You are the light of the world.”) Few preachers ever pointed that out to me.
+- A mature Christian sees Christ in everything and everyone else.
+- Humans were fashioned to love people more than principles, and Jesus fully exemplified this pattern.
+- When your isolated “I” turns into a connected “we,” you have moved from Jesus to Christ. We no longer have to carry the burden of being a perfect “I” because we are saved “in Christ,” and as Christ—or, as we say too quickly but correctly at the end of our official prayers: “Through Christ, Our Lord, Amen.” p. 37

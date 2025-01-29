@@ -1,0 +1,2 @@
+- Look at all the "adventures" I've had since I first started seeing Linda: 2020-present
+- Look at how I felt I was in my element and useful during the SD session last week (with Lou) -- an SD for the parish

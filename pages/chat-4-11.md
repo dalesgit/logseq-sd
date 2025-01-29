@@ -1,0 +1,23 @@
+- Rector OmartoEveryone
+	- 10:24 AM
+	- RO
+	- not sure if i would want to regularly disappoint people.  Would i want to be part of any organization where i am managing disappointment?
+- Fr. Peter A. LanetoEveryone
+	- 10:27 AM
+	- FP
+	  and that doubt and uncertainty are also normative - thinking about this weekend's Gospel
+	- ![thumbs up](https://st1.zoom.us/fe-static/fe-emoji/0.0.1.7/resource/1f44d.svg)
+	- 3
+- Brian CtoEveryone
+	- 10:29 AM
+	- ![](https://us04images.zoom.us/p/v2/62403a017b4e739875a6e1525d331d3ae33212cbad727b8556d7447801576ed7/f1412f0f-4114-4ac6-90c7-3455fd5fc93b-1977?type=large)
+	- Enneagram, helped me understand myself and others. Good for leadership development.
+	- [https://www.enneagraminstitute.com/type-descriptions/](https://www.enneagraminstitute.com/type-descriptions/)
+- Fr. Peter A. LanetoEveryone
+	- 10:29 AM
+	- FP
+	  maybe a shift in understanding stewardship - broadening it to impact the whole of our lives and living (responding to Jessica's concern about volunteers)
+- Lisa Belcher HamiltontoEveryone
+	- 10:30 AM
+	- LB
+- Brian C, I would welcome a workshop on Enneagram for clergy at the diocesan level.

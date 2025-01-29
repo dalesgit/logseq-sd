@@ -1,0 +1,46 @@
+- *Over the years I have read many, many books about scripture, God, religion and spirituality. Some have resonated more than others. Sacred Journeys not only uses a Biblical reading each Sunday in worship, but also a non-Biblical reading to remind us that God continues to speak through the wisdom and insight of contemporary theologians, authors, poets and song-writers. Many of the books listed below have been used for these non-Biblical readings, but I've also found them to be good resources for my own spiritual journey.   * *~ Kaye*
+- ### Theology
+  ---
+- *If Grace Is True* by Philip Gulley & James Mulholland
+- *If God Is Love* by Philip Gulley & James Mulholland
+- *The Heart of Christianity* by Marcus Borg
+- *Grounded *by Diana Butler Bass
+- *Why Christianity Must Change or Die*, by John Shelby Spong
+- *Called to Question* by Joan Chittister
+- *A Path with Heart* by Jack Kornfield
+- *Abraham: A Journey to the Heart of Three Faiths *by Bruce Feiler
+- *Where God Was Born* by Bruce Feiler
+- *Can you drink the cup? *by Henri Nouwen
+- *Life of the Beloved *by Henri J.M. Nouwen
+- *Healthy Religion* by Walter Kania
+- *Gospel Light* by John Shea
+- *Starlight *by John Shea
+- *Make Me An Instrument of Your Peace* by Kent Nerburn
+- *Beyond Belief* by Elaine Pagels
+- *The Gnostic Gospels* by Elaine Pagels
+- *The Great Emergence* by Phyllis Tickle
+- *The Coming of the Cosmic Christ* by Matthew Fox
+- *Biblical Literalism: A Gentile Heresy* by John Shelby Spong
+- *When God Was a Woman* by Merlin Stone
+- *Zealot *by Reza Aslan
+- *The Fourth Gospel: Tales of a Jewish Mystic* by John Shelby Spong
+- ### An Ecclectic Assortment of Other Interesting Books
+  ---
+- *Seven Thousand Ways to Listen* by Mark Nepo
+- *God Whispers *by Karyn Kedar
+- *Kitchen Table Wisdom* by Rachel Naomi Remen, M.D.
+- *My Grandfather’s Blessings* by Rachel Naomi Remen, M.D.
+- *Kneeling in Bethlehem *by Ann Weems (poems)
+- *Let Your Life Speak: Listening for the Voice of Vocation *by Parker J. Palmer
+- *Psalms for Praying* by Nan C. Merrill
+- *Sabbath *by Wayne Muller
+- *Simple Abundance* by Sarah Ban Breatnach
+- *Soul Survivor: How My Faith Survived the Church* by Philip Yancey
+- *The Celestine Prophecy* by James Redfield
+- *Tuesdays with Morrie* by Mitch Albom
+- *Walk in a Relaxed Manner: Life Lessons from the Camino *by Joyce Rupp
+- *Walking the Bible* by Bruce Feiler
+- *Traveling Mercies* by Anne LaMott
+- *A Woman’s Journey to God* by Joan Borysenko
+- *Falling Upwards* by Richard Rohr
+- *Daring Greatly* by Brene Brown

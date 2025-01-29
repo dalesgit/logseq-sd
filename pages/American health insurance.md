@@ -1,0 +1,42 @@
+- *The killing of UnitedHealthcare CEO Brian Thompson has set off soul-searching among many Americans. Part of that reflection is about the public reaction to Thompson’s death and the sympathy the suspect received online, with some people critical of the insurance industry [celebrating the assailant](https://www.npr.org/transcripts/1219032782) as [a sort of folk hero](https://theconversation.com/luigi-mangione-isnt-the-first-alleged-criminal-to-capture-many-peoples-imaginations-and-hearts-245918).*
+  tags:: [[SendToLogseq]]
+  
+  *As many observers [have pointed out](https://www.nytimes.com/2024/12/13/opinion/united-healthcare-shooting-brian-thompson.html), frustrations are no excuse for murder. But it has become a moment of wider reflection on health care in America, and why so many patients [feel the system is broken](https://theconversation.com/response-to-ceo-killing-reveals-antipathy-toward-health-insurers-but-entire-patchwork-system-is-to-blame-for-ill-feeling-245901).*
+  
+  *Philosopher [Nicole Hassoun](https://www.binghamton.edu/philosophy/faculty/profile.html?id=nhassoun) researches health care and human rights. The Conversation U.S. spoke with her about the deeper questions Americans should be asking when they discuss health care reform.*
+  
+  **We’re seeing an outpouring of anger about health care in the United States. Your work deals with global health inequality and access – can you help put the U.S. system in perspective?**
+  
+  If we compare ourselves to other rich countries, we don’t do very well. We [spend much more money](https://www.healthsystemtracker.org/chart-collection/health-spending-u-s-compare-countries/) – about double per patient, on average, compared with other OECD (Organization for Economic Cooperation and Development) countries – and get much less in return. In a study of 10 wealthy nations, including New Zealand, Sweden and Canada, The Commonwealth Fund – a private foundation for health care research – [ranks the U.S. last](https://www.commonwealthfund.org/publications/fund-reports/2024/sep/mirror-mirror-2024) overall.
+  
+  About 90% of Americans [have some kind of health insurance](https://www.pgpf.org/article/the-share-of-americans-without-health-insurance-in-2023-remained-low/). Still, 10% lack insurance entirely, and even some of those who are insured [can’t afford the co-pays or medication costs](https://www.cbsnews.com/news/health-care-costs-unaffordable-even-for-insured-americans-commonwealth-fund/).
+  
+  And there is [a great deal of inequality](https://pmc.ncbi.nlm.nih.gov/articles/PMC3540621/) in the U.S.: both disparities in access to health care and disparities in outcomes. Black infants die at a rate [nearly 2.5 times higher](https://minorityhealth.hhs.gov/infant-mortality-and-african-americans) than white babies do, for example, and diabetes rates are 30% higher among Native Americans and Latinos than white Americans. People of color tend to have [lower rates of coverage](https://statehealthcompare.shadac.org/table/29/health-insurance-coverage-type-by-race-ethnicity#1/5,4,1,10,86,9,8,6,39,40,41,42,238,43,239/42/57,58) as well.
+  
+  Before the Affordable Care Act, the situation was really dire. It’s likely many of us will get some terrible health condition like cancer during our lifetime, even when we’re relatively young. And what that meant before the ACA was that, if you got sick enough to lose your job – and so, your health insurance – new insurers [could charge high rates](https://www.hhs.gov/healthcare/about-the-aca/pre-existing-conditions/index.html) because of your “preexisting condition.”
+  
+  **You’ve argued there’s a universal right to health. What does that mean, and what would it look like?**
+  
+  I think that people everywhere should have [a legally enforced right to health](https://doi.org/10.1111/josp.12298) – and in many countries, such as [Germany](https://www.nbcnews.com/health/health-news/germany-s-health-care-system-model-u-s-n1024491) [and Norway](https://www.helsenorge.no/en/health-rights-in-norway/health-care-rights/), they do. In about half the world’s countries, that right is [spelled out in the constitution](https://www.worldpolicycenter.org/constitutional-approaches-to-the-right-to-health).
+  
+  But the United States has not ratified [the International Covenant on Economic, Social, and Cultural Rights](https://www.ohchr.org/en/instruments-mechanisms/instruments/international-covenant-economic-social-and-cultural-rights), which includes a right to health. Morally, I think that the U.S. ought to have signed on to that. People should be able to live [minimally good lives](https://global.oup.com/academic/product/a-minimally-good-life-9780192856159?cc=us\&lang=en&), and health is really important to do that. Countries should protect their citizens’ human rights, and health is fundamental to other human rights, like the right to life.
+  
+  When I say people [have a right to health](https://global.oup.com/academic/product/global-health-impact-9780197514993?cc=us\&lang=en\&#), I mean they have a right to the socially controllable determinants of health. This includes a clean and safe environment, health care and adequate food, water and social support. I am not saying that they have a right to be healthy, because you can’t guarantee that for anybody.
+  
+  What I mean is that society should do what it can so that everybody has health care at a reasonable cost. Good governments and their social support systems help everyone secure the health they need to contribute to society.
+  
+  The alternative is costly for everybody, not just people who are sick. Nearly half of the health problems in the U.S. [stem from preventable diseases](https://doi.org/10.1016/S2468-2667\(20\)30204-8). As a wealthy country, we should have the resources to address those problems – including steps as simple as making sure people have high blood-pressure medicine, or [regular primary-care visits](https://doi.org/10.1111/j.1468-0009.2005.00409.x). Everybody should be getting that kind of care, because otherwise, people certainly end up in the emergency room. Even ER visits that do not result in hospitalization cost [an immense amount of money](https://hcup-us.ahrq.gov/reports/statbriefs/sb311-ED-visit-costs-2021.pdf), ratcheting up the costs for everyone in the system, and often patients still [don’t get the care that they need](https://odphp.health.gov/healthypeople/objectives-and-data/browse-objectives/health-care-access-and-quality). According to [a 2020 study published in The Lancet](https://doi.org/10.1016/S0140-6736\(19\)33019-3), a single-payer system could save the U.S. 13% savings in health care spending or US$450 billion each year.
+  
+  It’s a matter of how we want to be as a country. We can make health a right, but that is a decision that the American population has to make. We’re all in this together. We’re all trying to make this country work. And it’s a lot harder to do that when you’re sick.
+  
+  **You mentioned an interesting phrase: the idea of the “minimally good life.”**
+  
+  I just [wrote a book](https://global.oup.com/academic/product/a-minimally-good-life-9780192856159?cc=us\&lang=en&) on the minimally good life, and the main question it grapples with is this: What do we owe each other as a basic minimum? What kind of social safety net will suffice for everyone?
+  
+  I argue that respect for humanity requires people to help others live “minimally good lives” when that help does not sacrifice our own reasonably good quality of life.
+  
+  But how should we define that minimum? How should the country decide what kind of social welfare system to have? The basic idea is this: Put yourself in other people’s shoes and think, “There but for the grace of God go I.” What would I need to live a good-enough life as that person? What would I need if I were them?
+  
+  Maybe you don’t have cancer right now, or heart disease, or anything else. But someday you might. Empathy lets us think about how we can create the kind of security that will help us all flourish and live good lives.
+  
+  It’s also part of being a good-enough person. I think we live better lives when we help each other. When we think about what we want, what policies and laws we want to vote for, we have to put ourselves in others’ shoes and consider what would be good enough for all of us.

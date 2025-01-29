@@ -1,0 +1,23 @@
+- Pre-Passover Shopping List
+- [ ] ☐ Lots of kosher for Passover food.
+- [ ] For tons of kosher for Passover recipes, go to Chabad.org/PassoverRecipes.
+- [ ] ☐ Lots of wine and/or grape juice.
+- [ ] ☐ Lots of kosher for Passover matzah. (See the Matzah section above.)
+- [ ] ☐ Candles for two nights (make that three nights, if Passover starts on
+  - [ ] Saturday night).
+	  - [ ] ☐ 48-hour candle, so you can light your Yom Tov candles on the second
+	  - [ ] night.*
+	  - [ ] ☐ Cooked or broiled chicken neck for the Seder plate. (See Zeroa on facing
+	  - [ ] page.)
+	  - [ ] ☐ Hard-boiled eggs for the Seder plate.
+	  - [ ] ☐ Raw horseradish (enough for everyone).
+	  - [ ] ☐ Lots of Romaine lettuce.
+	  - [ ] ☐ Apples, pears and walnuts for charoset.
+	  - [ ] ☐ Vegetable (like raw onion, celery, parsley, baby carrots or cooked potato…)
+	  - [ ] for dipping.
+	  - [ ] ☐ Big plates for Seder plates.
+	  - [ ] ☐ Matzah covers. You can purchase elegant triple-decker ones.
+	  - [ ] ☐ Cups or glasses for everyone, holding at least three ounces.
+	  - [ ] ☐ A bowl, preferably a little broken, for pouring the wine into from your
+	  - [ ] cups.
+	  - [ ] ☐ Purchase or print out copies of this Haggadah.

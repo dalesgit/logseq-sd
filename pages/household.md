@@ -1,0 +1,23 @@
+- Systems
+	- Irrigation
+	- A/C
+	- car battery
+	- Wastepro:
+		- rubbish
+		- recycle
+		- payment is automatic to Dale's Amex
+	- window maintenance
+		- labels on 2 different kind of windows for accessing screens
+	- laundry
+		- toggle water flow when absent for extended periods
+	- water softener
+		- In talking to company they said that the need for salt is much reduced in the kind of system we have
+		- cut off water supply on top of unit
+		- make sure no "bridging" by salt
+		- look to replace when there is just a little in the bottom
+	- Plumbing
+- Regular maintenance
+	- weekly: clean non-potable water filter in front yard
+		- rubbish: Mon evening, Thur evening
+		- recycling: Tue evening
+	- ea. 6 months replace the 5" media filter in A/C unit upstairs
