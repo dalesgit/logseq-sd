@@ -38,6 +38,7 @@
 		- not being able to get to a train -- to/from Europe
 		- More often, now, I am able to make the train. Not that I've arrived, but on my way.
 - Opening notes
+  collapsed:: true
 	- Attendance
 	  collapsed:: true
 		- Cherie missing
