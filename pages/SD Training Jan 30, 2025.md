@@ -53,6 +53,7 @@
 	- music: *Opening of doors* (Will Ackerman) Youtube
 	- Pray as you go
 	- Nina: uses Gestalt method to interpret dreams (we are everything in our drfeams)
+	- Hayman institute in Henderson --
 - Discussion
 	- Nina did dreamwork Jungian early. Also Allison some dreamwork.
 	- Only 1 woman in Bible had a dream: Sarah
