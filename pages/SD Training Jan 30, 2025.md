@@ -1,5 +1,4 @@
 - ![dreamwork.pdf](../assets/dreamwork_1738170359855_0.pdf)
-  collapsed:: true
 	- four techniques
 	- ((679a607e-61ba-4339-be3d-f13cb81945f2))
 	- ((679a64fe-50aa-4d23-9bf8-0e4c1025df17)) "Dreamwork"
