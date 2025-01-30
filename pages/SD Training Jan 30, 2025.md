@@ -82,4 +82,5 @@
 	- Nina has a recurring person -- they represent that she needs to stand up for herself.
 	- Linda had a recurring where there was an eerie house on top of her house. Since **Paul's** diagnosis she hasn't had it.
 		- She wrote out a poem about it that revealed something to her.
-		- "How did she not know it was there?"
+		- "How did she not know it was there?" Why don't I go up there more often. Yet it feels like I shouldn't be there. I could get caught. Traces of someone living there. The development meant that she didn't have to search anymore.
+		- **Recommend**
