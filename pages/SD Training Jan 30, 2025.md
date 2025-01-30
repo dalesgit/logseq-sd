@@ -33,7 +33,9 @@
 	-
 		- logseq.order-list-type:: number
 - My own dreams:
+  collapsed:: true
 	- for many years:
 		- involved not being able to complete something
 		- not being able to get to a train -- to/from Europe
 		- More often, now, I am able to make the train. Not that I've arrived, but on my way.
+-
