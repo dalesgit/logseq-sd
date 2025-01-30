@@ -52,4 +52,5 @@
 		- reading *faith styles* now
 		- Next week Anne Findley Chamberlain (she did Pastor hat/ Spiritual hat) (faith styles) will send a cheatsheet + quiz, Don't look at chart until you've taken the test. We won't esp. ch 4 in Faith styles
 	- music:
+	- Pray as you go
 - Discussion
