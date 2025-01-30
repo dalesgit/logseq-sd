@@ -57,4 +57,4 @@
 	- Nina did dreamwork Jungian early. Also Allison some dreamwork.
 	- Only 1 woman in Bible had a dream: Sarah
 	- The soul brings images (dreams) before us when we need to do something
-	-
+	- Dreams help to get the real stuff in SD
