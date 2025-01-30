@@ -28,7 +28,8 @@
 	- [[SF Ch/ 6 - Drawing strength from prayer]]
 	- [[women's theology]]
 	- [[Women and spiritual direction]]
-	- []
+	- [[Faith Styles]]
+	- [[In touch]]
 	- [[Spiritual Direction 101-notes-index]]
 - ## Short
 	- [[teilhard]]
