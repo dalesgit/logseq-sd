@@ -22,6 +22,8 @@
 - ![Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf)
 - ![Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
 - ![SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0.pdf](../assets/SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0_1738252176746_0.pdf)
+- [[ignatian-rules-of-discernment]]
+-
 -
 - ## Books
 	- Guenther [[Guenther-notes]]
