@@ -1,0 +1,9 @@
+- [verbatim template updated.docx](../assets/verbatim_template_updated_1738242979833_0.docx)
+- ![dreamwork_1738170359855_0.pdf](../assets/dreamwork_1738170359855_0_1738243009895_0.pdf)
+- ![Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738243041516_0.pdf)
+- ![golden_key_essay.pdf](../assets/golden_key_essay_1738243064471_0.pdf)
+- ![Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
+- [Cap Roster 2024.docx](../assets/Cap_Roster_2024_1738243110125_0.docx)
+- ![Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr.pdf](../assets/Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr_1738243124785_0.pdf)
+- ![Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
+-
