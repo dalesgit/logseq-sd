@@ -20,5 +20,6 @@
 - ![Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf)
 - ![Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
 - ## Books
+	- Guenther [[Guenther-notes]]
 - ## Short
 	- [[teilhard]]
