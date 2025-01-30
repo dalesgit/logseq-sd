@@ -84,4 +84,4 @@
 		- She wrote out a poem about it that revealed something to her.
 		- "How did she not know it was there?" Why don't I go up there more often. Yet it feels like I shouldn't be there. I could get caught. Traces of someone living there. The development meant that she didn't have to search anymore.
 		- **Recommend**
-	-
+	- **towel** in SD. Keep wringing it out. Re-work it.
