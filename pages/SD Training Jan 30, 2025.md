@@ -1,5 +1,4 @@
 - ![dreamwork.pdf](../assets/dreamwork_1738170359855_0.pdf)
-  collapsed:: true
 	- four techniques
 	- ((679a607e-61ba-4339-be3d-f13cb81945f2))
 	- ((679a64fe-50aa-4d23-9bf8-0e4c1025df17)) "Dreamwork"
@@ -53,6 +52,7 @@
 		- Next week Anne Findley Chamberlain (she did Pastor hat/ Spiritual hat) (faith styles) will send a cheatsheet + quiz, Don't look at chart until you've taken the test. We won't esp. ch 4 in Faith styles
 	- music: *Opening of doors* (Will Ackerman) Youtube
 	- Pray as you go
+	- Nina: uses Gestalt method to interpret dreams (we are )
 - Discussion
 	- Nina did dreamwork Jungian early. Also Allison some dreamwork.
 	- Only 1 woman in Bible had a dream: Sarah
