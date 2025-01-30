@@ -79,4 +79,4 @@
 		- how frustrated she was that they weren't **getting it**
 		- Her SD helped to recognize that there were strings that she hadn't cut  -- still a little co-dependent
 		- al-anon work
-	- Nina has a recurring person -- they represent that she need
+	- Nina has a recurring person -- they represent that she needs to stand up for herself.
