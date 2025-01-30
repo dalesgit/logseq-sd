@@ -76,3 +76,5 @@
 	- Dreams can reveal what is going on in us (grief unresolved?)
 		- dreams are for our health and well-being
 	- Linda had recurring dream about potty-training her children.
+		- how frustrated she was that they weren't **getting it**
+		- Her SD
