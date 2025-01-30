@@ -26,6 +26,7 @@
 - [[Discernment Spiritual Awakening Clippings]]
 -
 -
+-
 - ## Books
 	- Guenther [[Guenther-notes]]
 	- [[SF Ch/ 6 - Drawing strength from prayer]]
