@@ -1,6 +1,8 @@
 - [Welcome to CAP Module Two.docx](../assets/Welcome_to_CAP_Module_Two_1738250758405_0.docx)
 - [Cap Roster 2024.docx](../assets/Cap_Roster_2024_1738243110125_0.docx)
 - [verbatim template updated.docx](../assets/verbatim_template_updated_1738242979833_0.docx)
+- [CAP Module One Syllabus.docx](../assets/CAP_Module_One_Syllabus_1738252107302_0.docx)
+-
 - ## PDFs
 - ![Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
 - ![Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr.pdf](../assets/Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr_1738243124785_0.pdf)
@@ -26,3 +28,4 @@
 	- [[Women and spiritual direction]]
 - ## Short
 	- [[teilhard]]
+	- [[SD curious people]]
