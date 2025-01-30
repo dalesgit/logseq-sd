@@ -23,6 +23,7 @@
 - ![Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
 - ![SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0.pdf](../assets/SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0_1738252176746_0.pdf)
 - [[ignatian-rules-of-discernment]]
+- [[Discernment Spiritual Awakening Clippings]]
 -
 -
 - ## Books
