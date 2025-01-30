@@ -1,3 +1,4 @@
+- [Welcome to CAP Module Two.docx](../assets/Welcome_to_CAP_Module_Two_1738250758405_0.docx)
 - [verbatim template updated.docx](../assets/verbatim_template_updated_1738242979833_0.docx)
 - ![dreamwork_1738170359855_0.pdf](../assets/dreamwork_1738170359855_0_1738243009895_0.pdf)
 - ![Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738243041516_0.pdf)
@@ -16,6 +17,7 @@
 - ![Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr.pdf](../assets/Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr_1738250618934_0.pdf)
 - ![Transformation-Of-Consciousness---Oct-3-2024---1-46-PM-73pkc_ocr.pdf](../assets/Transformation-Of-Consciousness---Oct-3-2024---1-46-PM-73pkc_ocr_1738250692431_0.pdf)
 - ![Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0.pdf](../assets/Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0_1738250735688_0.pdf)
-- [Welcome to CAP Module Two.docx](../assets/Welcome_to_CAP_Module_Two_1738250758405_0.docx)
 - ![Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf)
+- ![Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
+-
 -
