@@ -65,3 +65,4 @@
 		- **The eye with which I see God is the same with which God sees me.** **My eye and God's eye is one eye, and one sight, and one knowledge, and one love.**
 		- https://en.wikiquote.org/wiki/Meister_Eckhart#:~:text=Meister%20Eckhart%20(c.,one%20knowledge%2C%20and%20one%20love.
 	- Rift between Jung and Freud happened when Freud refused to share about one of hisgh dream
+	-
