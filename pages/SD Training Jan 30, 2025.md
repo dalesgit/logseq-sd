@@ -71,7 +71,8 @@
 		- dream delivered real grace: **Home**
 		- travel? Home?
 		- She asked
-		- Nina: Winston Churchill appeared in a dream (Jung said pay attention to the wise old man/woman in your dream)
-			- dream had connected to chapstick. Nina took that to mean concern with what she has to preach this Sunday (fear of offending people?)
-		- Dreams can reveal what is going on in us (grief unresolved?)
-		-
+	- Nina: Winston Churchill appeared in a dream (Jung said pay attention to the wise old man/woman in your dream)
+		- dream had connected to chapstick. Nina took that to mean concern with what she has to preach this Sunday (fear of offending people?)
+	- Dreams can reveal what is going on in us (grief unresolved?)
+		- dreams are for our health and well-being
+	- Linda had recurring dream about potty-training her children.
