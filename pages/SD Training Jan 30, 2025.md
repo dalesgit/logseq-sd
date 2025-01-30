@@ -80,3 +80,4 @@
 		- Her SD helped to recognize that there were strings that she hadn't cut  -- still a little co-dependent
 		- al-anon work
 	- Nina has a recurring person -- they represent that she needs to stand up for herself.
+	- Linda had a recurring where there was an eerie house on top of her house. Since **Paul's** diagnosis
