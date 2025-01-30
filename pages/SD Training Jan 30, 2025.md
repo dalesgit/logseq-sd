@@ -66,3 +66,7 @@
 	- Rift between Jung and Freud happened when Freud refused to share about one of hisgh dream
 	- asking: What of the dream narrative speaks to my actual life (storying the dream)
 	- p. 13 provides the questions that could even be handed to our SDee (The cat picture)
+	- I shared my dream
+		- what image? **train**
+		- dream delivered real grace
+		-
