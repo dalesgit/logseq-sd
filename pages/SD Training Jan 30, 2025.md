@@ -40,10 +40,13 @@
 		- More often, now, I am able to make the train. Not that I've arrived, but on my way.
 - Opening notes
 	- Attendance
+	  collapsed:: true
 		- Cherie missing
-		- Esther?
+		- Esther
 		- Allison
 		- Danny
 		- Nina
 	- Husband will die of this. It's aggressive.
+	- Verbatims?
+		-
 - Discussion
