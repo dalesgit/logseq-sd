@@ -40,5 +40,8 @@
 		- More often, now, I am able to make the train. Not that I've arrived, but on my way.
 - Opening notes
 	- Cherie missing
-	-
+	- Esther?
+	- Allison
+	- Danny
+	- Nina
 - Discussion
