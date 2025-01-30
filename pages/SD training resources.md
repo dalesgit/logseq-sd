@@ -9,4 +9,6 @@
 - [Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1726956043782_0.edn](../assets/Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1726956043782_0_1738250423826_0.edn)
 - ![Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr.pdf](../assets/Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1738250462997_0.pdf)
 - ![Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined.pdf](../assets/Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined_1738250487125_0.pdf)
--
+- ![Listening-to-the-Whole-Story-Of-Grieving---Oct-7-2023---5-46-ap501_ocr.pdf](../assets/Listening-to-the-Whole-Story-Of-Grieving---Oct-7-2023---5-46-ap501_ocr_1738250517855_0.pdf)
+- ![Mission+and+the+Art+of+Spiritual+Direction.pdf](../assets/Mission+and+the+Art+of+Spiritual+Direction_1738250539293_0.pdf)
+- ![ListeningSpiritWisdomJoy.pdf](../assets/ListeningSpiritWisdomJoy_1738250557671_0.pdf)
