@@ -12,3 +12,5 @@
 - ![Listening-to-the-Whole-Story-Of-Grieving---Oct-7-2023---5-46-ap501_ocr.pdf](../assets/Listening-to-the-Whole-Story-Of-Grieving---Oct-7-2023---5-46-ap501_ocr_1738250517855_0.pdf)
 - ![Mission+and+the+Art+of+Spiritual+Direction.pdf](../assets/Mission+and+the+Art+of+Spiritual+Direction_1738250539293_0.pdf)
 - ![ListeningSpiritWisdomJoy.pdf](../assets/ListeningSpiritWisdomJoy_1738250557671_0.pdf)
+- ![Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
+- ![Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr.pdf](../assets/Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr_1738250618934_0.pdf)
