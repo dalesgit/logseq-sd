@@ -1,2 +1,0 @@
-- [[2nd-lent-lessons]]
-- [[2nd-lent-notes]]
