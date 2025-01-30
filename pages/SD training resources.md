@@ -6,4 +6,5 @@
 - [Cap Roster 2024.docx](../assets/Cap_Roster_2024_1738243110125_0.docx)
 - ![Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr.pdf](../assets/Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr_1738243124785_0.pdf)
 - ![Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
+- [Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1726956043782_0.edn](../assets/Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1726956043782_0_1738250423826_0.edn)
 -
