@@ -23,5 +23,6 @@
 	- Guenther [[Guenther-notes]]
 	- [[SF Ch/ 6 - Drawing strength from prayer]]
 	- [[women's theology]]
+	- [[Women and spiritual direction]]
 - ## Short
 	- [[teilhard]]
