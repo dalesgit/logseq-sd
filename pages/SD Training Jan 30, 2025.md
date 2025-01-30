@@ -77,4 +77,4 @@
 		- dreams are for our health and well-being
 	- Linda had recurring dream about potty-training her children.
 		- how frustrated she was that they weren't **getting it**
-		- Her SD
+		- Her SD helped to recognize that there were strings that she hadn't cut  -- still a little co-dependent
