@@ -21,5 +21,6 @@
 - ![Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
 - ## Books
 	- Guenther [[Guenther-notes]]
+	-
 - ## Short
 	- [[teilhard]]
