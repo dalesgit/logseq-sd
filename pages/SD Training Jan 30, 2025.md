@@ -60,3 +60,5 @@
 	- Only 1 woman in Bible had a dream: Sarah
 	- The soul brings images (dreams) before us when we need to do something
 	- Dreams help to get the real stuff in SD -- to **avoid** ... think of it as **contemplation**, pay attention to the image ... or so ... analysis is harmful to SD
+	- Meister Eckhart (c. 1260 – 1328) was a German Monist philosopher, mystic, and theologian of the Catholic Church.
+		- **The eye with which I see God is the same with which God sees me.** **My eye and God's eye is one eye, and one sight, and one knowledge, and one love.**
