@@ -54,3 +54,4 @@
 	- music: *Opening of doors* (Will Ackerman) Youtube
 	- Pray as you go
 - Discussion
+	- Nina did dreamwork Jungian early. Also Allison some dreamwork.
