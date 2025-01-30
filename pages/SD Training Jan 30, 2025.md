@@ -33,3 +33,6 @@
 	-
 		- logseq.order-list-type:: number
 - My own dreams:
+	- for many years:
+		- involved not being able to complete something
+		-
