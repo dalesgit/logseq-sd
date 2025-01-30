@@ -1,17 +1,9 @@
-<<<<<<< HEAD
 ## 10. Buzzfeed #american-culture
 	- "As an American: The fact that a private company and a for-profit business can own something as essential as electricity. And they’re allowed to have a complete monopoly so they just charge whatever the hell they want. This shouldn’t be a thing. Electricity should be part of your city’s public utilities. It shouldn’t be something that you can trade in the stock market. The prescription drug ads. These should not exist. If one needs a doctor to approve it, why are you promoting it to us on TV? We can’t just go buy it or tell the doctor what to prescribe. The culture of your work is what defines you, and the idea that if you’re not getting by, you’re just not trying hard enough. No. Hard work doesn’t always pay off, and people shouldn’t have to work themselves to death just to afford rent."
 		- This seems so blatantly true for me
 	- 12.   "The fact that working-class Americans constantly vote in their own worst interest. Destroying their own unions, privatizing everything that was once public and accessible, cutting taxes for the wealthy and corporations, which ensures government services will be underfunded, and vehemently opposing any efforts to make healthcare and childcare affordable and available. Because…freedom, bald eagle, shotgun, beer, pickup truck…or something?"
 	- 14. "Guns, tipping, chemicals in food that are banned in most other countries, no healthcare, expensive medicine, advertisements every two minutes in TV shows, the pledge of allegiance, Americans thinking that America is the best country in the world, the flag being everywhere, hoa's, no one questioning where their tax dollars go, Americans thinking that this is the most racist country ever and no uniforms in schools...that's my two cents."
 	- 15. "How our culture is built around the auto industry instead of more mass transit options. I mean, arguably, our main form of acceptable identification is a driver's license, and some cities and towns are almost impossible to navigate if you don't have a car. And don't get me wrong, I love the freedom to be able to drive anywhere I want to, but it's crazy that we don't have a high-speed rail system for more efficient and safer travel."
-=======
----
-id: Weird American
-aliases: []
-tags: []
----
-
 ## 10. Buzzfeed #american-culture
 
 - "As an American: The fact that a private company and a for-profit business can own something as essential as electricity. And they’re allowed to have a complete monopoly so they just charge whatever the hell they want. This shouldn’t be a thing. Electricity should be part of your city’s public utilities. It shouldn’t be something that you can trade in the stock market. The prescription drug ads. These should not exist. If one needs a doctor to approve it, why are you promoting it to us on TV? We can’t just go buy it or tell the doctor what to prescribe. The culture of your work is what defines you, and the idea that if you’re not getting by, you’re just not trying hard enough. No. Hard work doesn’t always pay off, and people shouldn’t have to work themselves to death just to afford rent."
@@ -20,4 +12,3 @@ tags: []
 - 14. "Guns, tipping, chemicals in food that are banned in most other countries, no healthcare, expensive medicine, advertisements every two minutes in TV shows, the pledge of allegiance, Americans thinking that America is the best country in the world, the flag being everywhere, hoa's, no one questioning where their tax dollars go, Americans thinking that this is the most racist country ever and no uniforms in schools...that's my two cents."
 - 15. "How our culture is built around the auto industry instead of more mass transit options. I mean, arguably, our main form of acceptable identification is a driver's license, and some cities and towns are almost impossible to navigate if you don't have a car. And don't get me wrong, I love the freedom to be able to drive anywhere I want to, but it's crazy that we don't have a high-speed rail system for more efficient and safer travel."
 
->>>>>>> fab52dcfb86508459eff2280035295f995315854

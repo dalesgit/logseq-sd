@@ -1,2 +1,0 @@
-- [Bread Machine Whole Wheat Bread](https://littlesunnykitchen.com/whole-wheat-bread-machine-recipe/)
-	-
