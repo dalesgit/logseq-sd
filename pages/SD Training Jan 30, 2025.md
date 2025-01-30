@@ -69,4 +69,5 @@
 	- I shared my dream
 		- what image? **train**
 		- dream delivered real grace
+		- Nina: Winston Churchill (Jung said pay attention to the wise old man/woman in your dream)
 		-
