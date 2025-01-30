@@ -14,5 +14,7 @@
 - ![ListeningSpiritWisdomJoy.pdf](../assets/ListeningSpiritWisdomJoy_1738250557671_0.pdf)
 - ![Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
 - ![Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr.pdf](../assets/Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr_1738250618934_0.pdf)
-- /up
+- ![Transformation-Of-Consciousness---Oct-3-2024---1-46-PM-73pkc_ocr.pdf](../assets/Transformation-Of-Consciousness---Oct-3-2024---1-46-PM-73pkc_ocr_1738250692431_0.pdf)
+- ![Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0.pdf](../assets/Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0_1738250735688_0.pdf)
+-
 -
