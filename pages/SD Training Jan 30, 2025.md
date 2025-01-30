@@ -48,5 +48,5 @@
 		- Nina
 	- Husband will die of this. It's aggressive.
 	- Verbatims?
-		-
+		- Feb 27 (talking In touch) for my verbatim
 - Discussion
