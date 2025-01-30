@@ -50,5 +50,5 @@
 	- Verbatims?
 		- **Feb 27 (talking In touch) for my verbatim**
 		- reading faith styles now
-		-
+		- Next week Anne Findley Chamberlain (she did Pastor hat/ Spiritual hat) (faith styles) will send a cheatsheet + quiz
 - Discussion
