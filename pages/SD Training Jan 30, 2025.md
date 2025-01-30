@@ -68,6 +68,7 @@
 	- p. 13 provides the questions that could even be handed to our SDee (The cat picture)
 	- I shared my dream
 		- what image? **train**
-		- dream delivered real grace
+		- dream delivered real grace: **Home**
+		-
 		- Nina: Winston Churchill appeared in a dream (Jung said pay attention to the wise old man/woman in your dream)
 			- dream had connected to chapstick. Nina took that to mean concern with what she has to preach this Sunday (fear of offending people?)
