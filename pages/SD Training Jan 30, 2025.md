@@ -54,6 +54,7 @@
 	- Pray as you go
 	- Nina: uses Gestalt method to interpret dreams (we are everything in our drfeams)
 	- Haydentltl institute in Henderson -- does a lot with dream: method usually in a group. tell the dream 3 times. "If it were my dream I would be curious about ....?
+	- temptation is to think of this as
 - Discussion
 	- Nina did dreamwork Jungian early. Also Allison some dreamwork.
 	- Only 1 woman in Bible had a dream: Sarah
