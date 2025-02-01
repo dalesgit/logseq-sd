@@ -1,0 +1,17 @@
+{
+  "apps": [
+    {
+      "name": "kate",
+      "code": "kate",
+      "arguments": "",
+      "showInMenu": true
+    },
+    {
+      "name": "gvim",
+      "code": "gvim",
+      "arguments": "",
+      "showInMenu": true
+    }
+  ],
+  "sysexpInFileMenu": true
+}
