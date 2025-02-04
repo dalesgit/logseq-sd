@@ -17,7 +17,7 @@
 	- [[SD-101-1-4]]
 	- [[SD-101-5-6]]
 	- [[SD-101-7-8]]
-	-
+	- [[SD-101-9-11]]
 - ## Extra
 	- [[1729776317-spirituality-summit]]
 	- [[women's theology]]
