@@ -6,12 +6,12 @@
   
   **Required texts:**
   1. Holy Listening by Margaret Gunther
-	- [[Margaret Guenther  Remembering Spiritual Masters  Spirituality & Practice]]
+	- [[Margaret Guenther  Remembering Spiritual Masters  Spirituality & Practice]] [[Holy Listening notes]]
 	- [[Guenther_1992]] [[Guenther-notes]]
+	- [[Good Teachers]]
 	-
 - 2. Spiritual Direction 101 by Teresa Blythe
-  
-  **Assignments:**
+- **Assignments:**
   
   Read weekly articles for discussion and make notes  including questions, stirrings, and noticings to process the material with your peers.  Write a faux verbatim after reading [Holy Listening]{.underline} and [Spiritual Direction 101]{.underline} [(due Nov 21 or]{.mark} [Dec 5]{.mark} class) to present to the class.
   
