@@ -42,9 +42,10 @@
 - [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
 - **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD**
 	- Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
-	-
+	- [Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined.pdf](../assets/Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined_1738250487125_0.pdf)
 - **Sept 26 Didactic:** Switching Hats from Pastor to Spiritual Director
   with Rev. Anne Findlay-Chamberlain, M.Div ** Article Discussion** Facilitating an Adult Relationship with God by William Barry, SJ, Presence Magazine
+- [Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr.pdf](../assets/Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1738250462997_0.pdf)
 - **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills**
   Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
 - **Oct 10** **Didactic:** Compassionate Attention in SD**
