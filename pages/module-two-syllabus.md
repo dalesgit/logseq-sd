@@ -1,8 +1,7 @@
-- **Welcome to CAP Module Two:
-  Building the Spiritual Direction Toolbox**
+## Welcome to CAP Module Two:
+- Building the Spiritual Direction Toolbox**
   January 9-March 27, 2025
-  
-  **Instructor**: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
+- ## Instructor: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
   
   **Required texts:**
 	- 1. Discernment by Rose Mary Dougherty, SSND
@@ -22,7 +21,7 @@
 	- **Article Discussion:**
 		- 1. Working with Emotions in Spiritual Direction, Kathleen Fisher, Presence Magazine.
 		- [Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf
-		- )2. Excerpts from The Way of Discernment by Elizabeth Liebert, SNJM
+		- 2. Excerpts from The Way of Discernment by Elizabeth Liebert, SNJM
 		- [Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0.pdf]
 - **Jan 30 Didactic:**
 	- Working with Dreams in Spiritual Direction
