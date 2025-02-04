@@ -41,19 +41,20 @@
 - [Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
 - [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
 - **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD**
-	- Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
+	- **Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
 	- [Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined.pdf](../assets/Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined_1738250487125_0.pdf)
 - **Sept 26 Didactic:** Switching Hats from Pastor to Spiritual Director
   with Rev. Anne Findlay-Chamberlain, M.Div ** Article Discussion** Facilitating an Adult Relationship with God by William Barry, SJ, Presence Magazine
 - [Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr.pdf](../assets/Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1738250462997_0.pdf)
-- **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills**
-  Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
+- **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills
+  **Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
 - **Oct 10** **Didactic:** Compassionate Attention in SD**
   
   Article Discussion** 
   
   1. Transformation of Consciousness: Becoming Prayer by Mary Rees
   2. The Practice of Contemplation as Witness and Resistance by Christine Valters Paintner, Presence Magazine
+- [Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
 - **Oct 17** **Didactic:** The Enneagram and Centers of Knowing with
   
   Rev. Carol Hassell, M.Div **
