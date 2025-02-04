@@ -4,7 +4,7 @@
 	  January 9-March 27, 2025
 - ## Instructor: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
 - ## Required texts:
-	- 1. *Discernment* by Rose Mary Dougherty, SSND
+	- 1. *Discernment* by Rose Mary Dougherty, SSND -- [[Discernment Spiritual Awakening Clippings]]
 	  2. *Faith Styles* by John Mabry
 	  3. *In Touch* by John Prendergast, PHD
 - ## Assignments:
