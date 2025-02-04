@@ -23,5 +23,6 @@
 - ## Module 2 toc
 - [[Module 2 session 1]]
 - [[2025-01-09]]
-- [[2025-01-16]]h
+- [[2025-01-16]]
+- [[Module 2 Jan 23]]
 - [[SD Training Jan 30, 2025]]
