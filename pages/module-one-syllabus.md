@@ -13,6 +13,10 @@
 	- [[Midwife to the soul]]
 	- [[Women and spiritual direction]]
 - 2. Spiritual Direction 101 by Teresa Blythe
+	- [[101]]
+	- [[SD-101-1-4]]
+	- [[SD-101-5-6]]
+	- [[SD-101-7-8]]
 	-
 - ## Extra
 	- [[1729776317-spirituality-summit]]
