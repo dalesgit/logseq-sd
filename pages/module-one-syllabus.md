@@ -38,15 +38,13 @@
   
   1. Defining Spiritual Direction from "Inviting the Mystic, Supporting the Prophet: An Introduction to SD by Katherine Marie Dyckman, SNJM and L. Patrick Carroll, SJ 
   2. The Art of Spiritual Direction by Madeline Birmingham and William Connolly, SJ **
-  
-  **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD**
-  
-  Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
-  
-  **Sept 26 Didactic:** Switching Hats from Pastor to Spiritual Director
+- [Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
+- [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
+- **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD**
+	- Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
+- **Sept 26 Didactic:** Switching Hats from Pastor to Spiritual Director
   with Rev. Anne Findlay-Chamberlain, M.Div ** Article Discussion** Facilitating an Adult Relationship with God by William Barry, SJ, Presence Magazine
-  
-  **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills**
+- **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills**
   Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
   
   **Oct 10** **Didactic:** Compassionate Attention in SD**
