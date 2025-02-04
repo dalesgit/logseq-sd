@@ -1,11 +1,12 @@
-## Welcome to CAP Module Two:
+- [[module-one-syllabus]]
+- ## Welcome to CAP Module Two:
 	- Building the Spiritual Direction Toolbox**
 	  January 9-March 27, 2025
 - ## Instructor: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
 - ## Required texts:
-	- 1. Discernment by Rose Mary Dougherty, SSND
-	  2. Faith Styles by John Mabry
-	  3. In Touch by John Prendergast, PHD
+	- 1. *Discernment* by Rose Mary Dougherty, SSND
+	  2. *Faith Styles* by John Mabry
+	  3. *In Touch* by John Prendergast, PHD
 - ## Assignments:
 	- **Read texts and articles sent for discussion and make notes**
 		- ~ including questions, stirrings, and noticings to process the material with your peers.
