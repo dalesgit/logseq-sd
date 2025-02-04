@@ -11,11 +11,8 @@
 - **Assignments:
 - **Read texts and articles sent for discussion and make notes**
 	- ~ including questions, stirrings, and noticings to process the material with your peers.
-	  Write a faux verbatim [using one of the concepts or modalities presented]{.underline} in one or more of the three texts read (a discernment issue, crisis of faith, tending inner guidance) and engage in peer supervision. 
-	  
-	  [due Mar 20 or Mar 27]{.mark}
-	  
-	  **Jan 9 Didactic:** Ignatian Discernment
+	  Write a faux verbatim [using one of the concepts or modalities presented]{.underline} in one or more of the three texts read (a discernment issue, crisis of faith, tending inner guidance) and engage in peer supervision.
+- **Jan 9 Didactic:** Ignatian Discernment
 	- **Part 1** with Christine Pearson
 	- *Please watch YouTube video sent!*
 - **Jan 16 Didactic:** Ignatian Discernment
@@ -23,8 +20,9 @@
 	- *Please fill out the presession form sent!*
 - **Jan 23 Didactic:** Ways of Knowing in Discernment
 	- **Article Discussion:**
-	- 1. Working with Emotions in Spiritual Direction, Kathleen Fisher, Presence Magazine. 
-	  2. Excerpts from The Way of Discernment by Elizabeth Liebert, SNJM
+		- 1. Working with Emotions in Spiritual Direction, Kathleen Fisher, Presence Magazine.
+		- [Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf)2. Excerpts from The Way of Discernment by Elizabeth Liebert, SNJM
+		- [Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0.pdf]
 - **Jan 30 Didactic:**
 - Working with Dreams in Spiritual Direction
 - ** Article Discussion**
