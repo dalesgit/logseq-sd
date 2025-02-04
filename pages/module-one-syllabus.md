@@ -24,40 +24,41 @@
 - **Expectations:**
 	- > Openness to the Spirit and respect for all faith traditions!  Faithful attendance and active participation for each class, Thursdays, 11:30-1:30. Please give advance notice if you MUST miss class and plan to catch up on the lesson with a peer.  Obtain and meet with your own personal spiritual director once a month.
 	- *Keep a journal (as best you can) with prompts 1. I notice...(awareness) 2. I'm curious about... (attentive exploration) 3.  I wonder how I can... (active response)*
-- **Sept 12 INTRO!**
-	- **Didactic:** The Difference Between Religion and Spirituality
-	- **Article Discussion**:
-	- 1. Defining Spiritual Direction from "Inviting the Mystic, Supporting the Prophet: An Introduction to SD by Katherine Marie Dyckman, SNJM and L. Patrick Carroll, SJ 
-	  2. The Art of Spiritual Direction by Madeline Birmingham and William Connolly, SJ **
-	- [Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
-	- [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
-- **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD
-	- **Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
-	- [Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined.pdf](../assets/Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined_1738250487125_0.pdf)
-- **Sept 26 Didactic:** Switching Hats from Pastor to Spiritual Director with Rev. Anne Findlay-Chamberlain, M.Div
-	- **Article Discussion** Facilitating an Adult Relationship with God by William Barry, SJ, Presence Magazine
-	- [Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr.pdf](../assets/Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1738250462997_0.pdf)
-- **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills
-	- **Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
-- **Oct 10** **Didactic:** Compassionate Attention in SD
-	- **Article Discussion**
-		- 1. Transformation of Consciousness: Becoming Prayer by Mary Rees
-		- 2. The Practice of Contemplation as Witness and Resistance by Christine Valters Paintner, Presence Magazine
-	- [Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
-- **Oct 17** **Didactic:** The Enneagram and Centers of Knowing withRev. Carol Hassell, M.Div
-	- **Article Discussion** Enneagram Centers of Knowing and the Understanding of the Sacred by Nathan Bettger, Presence Magazine
-	- [Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
-- **Oct 24**
-	- **Didactic:** The Enneagram in Spiritual Direction with Rev. Carol Hassell, M.Div
-- **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim
-	- **Article Discussion:** Shame: A Primary Resistance to Movement in Spiritual Direction by James Bowler, Presence Magazine
-	- [Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr.pdf](../assets/Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr_1738250618934_0.pdf)
-- **Nov 7** **Didactic:** Grief in SD
-	- **Article Discussion:**
-		- 1. Spiritual Direction for the Bereaved" Grief, Spiritual Crisis and the Dark Night of the Soul by Tract Allendale Hawthorne, Presence
-		  2. Listening to the Whole Story of Grieving: A New Compass to Navigate a Griever's Healing Path by Shea Darian, Presence Magazine
-		- [SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0.pdf](../assets/SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0_1738252176746_0.pdf)
-- **Nov 14**
-	- **Didactic:** When the Wound Goes Deep: How to Heal with Chaplain Terri Bolotin, M.Div, Atrium Health
-- **Nov 21** **and Dec 5** **Class Discussion:** Spiritual Direction
-- 101 verbatims
+- Schedule
+	- **Sept 12 INTRO!**
+		- **Didactic:** The Difference Between Religion and Spirituality
+		- **Article Discussion**:
+		- 1. Defining Spiritual Direction from "Inviting the Mystic, Supporting the Prophet: An Introduction to SD by Katherine Marie Dyckman, SNJM and L. Patrick Carroll, SJ 
+		  2. The Art of Spiritual Direction by Madeline Birmingham and William Connolly, SJ **
+		- [Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
+		- [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
+	- **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD
+		- **Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
+		- [Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined.pdf](../assets/Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined_1738250487125_0.pdf)
+	- **Sept 26 Didactic:** Switching Hats from Pastor to Spiritual Director with Rev. Anne Findlay-Chamberlain, M.Div
+		- **Article Discussion** Facilitating an Adult Relationship with God by William Barry, SJ, Presence Magazine
+		- [Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr.pdf](../assets/Facilitating-an-Adult-Relationship-with-God---Sep-8-2024---4-z2kpz_ocr_1738250462997_0.pdf)
+		- **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills
+			- **Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
+	- **Oct 10** **Didactic:** Compassionate Attention in SD
+		- **Article Discussion**
+			- 1. Transformation of Consciousness: Becoming Prayer by Mary Rees
+			- 2. The Practice of Contemplation as Witness and Resistance by Christine Valters Paintner, Presence Magazine
+		- [Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
+	- **Oct 17** **Didactic:** The Enneagram and Centers of Knowing withRev. Carol Hassell, M.Div
+		- **Article Discussion** Enneagram Centers of Knowing and the Understanding of the Sacred by Nathan Bettger, Presence Magazine
+		- [Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
+	- **Oct 24**
+		- **Didactic:** The Enneagram in Spiritual Direction with Rev. Carol Hassell, M.Div
+	- **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim
+		- **Article Discussion:** Shame: A Primary Resistance to Movement in Spiritual Direction by James Bowler, Presence Magazine
+		- [Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr.pdf](../assets/Shame-As-Resistance---Oct-6-2024---7-37-PM-8fd01_ocr_1738250618934_0.pdf)
+	- **Nov 7** **Didactic:** Grief in SD
+		- **Article Discussion:**
+			- 1. Spiritual Direction for the Bereaved" Grief, Spiritual Crisis and the Dark Night of the Soul by Tract Allendale Hawthorne, Presence
+			  2. Listening to the Whole Story of Grieving: A New Compass to Navigate a Griever's Healing Path by Shea Darian, Presence Magazine
+			- [SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0.pdf](../assets/SD-for-the-Bereaved---Oct-6-2024---7-41-PM-umb3v_ocr_1730928253902_0_1738252176746_0.pdf)
+	- **Nov 14**
+		- **Didactic:** When the Wound Goes Deep: How to Heal with Chaplain Terri Bolotin, M.Div, Atrium Health
+	- **Nov 21** **and Dec 5** **Class Discussion:** Spiritual Direction
+		- 101 verbatims
