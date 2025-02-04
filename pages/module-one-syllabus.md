@@ -1,8 +1,8 @@
 - [[module-two-syllabus]]
-- ## **Welcome to CAP Module One: Understanding the Fundamentals of Spiritual Direction**
+- ## Welcome to CAP Module One: Understanding the Fundamentals of Spiritual Direction**
 	- September --December 2024
 	- **Instructor**: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
-- ## **Required texts:**
+- ## Required texts:
 	- 1. Holy Listening by Margaret Gunther
 		- [[Margaret Guenther  Remembering Spiritual Masters  Spirituality & Practice]] [[Holy Listening notes]]
 		- [[Guenther_1992]] [[Guenther-notes]]
@@ -19,12 +19,12 @@
 - ## Extra
 	- [[1729776317-spirituality-summit]]
 	- [[women's theology]]
-- **Assignments:**
-- > Read weekly articles for discussion and make notes  including questions, stirrings, and noticings to process the material with your peers.  Write a faux verbatim after reading [Holy Listening]{.underline} and [Spiritual Direction 101]{.underline} [(due Nov 21 or]{.mark} [Dec 5]{.mark} class) to present to the class.
-- **Expectations:**
+- ## **Assignments:**
+	- > Read weekly articles for discussion and make notes  including questions, stirrings, and noticings to process the material with your peers.  Write a faux verbatim after reading [Holy Listening]{.underline} and [Spiritual Direction 101]{.underline} [(due Nov 21 or]{.mark} [Dec 5]{.mark} class) to present to the class.
+- ## **Expectations:**
 	- > Openness to the Spirit and respect for all faith traditions!  Faithful attendance and active participation for each class, Thursdays, 11:30-1:30. Please give advance notice if you MUST miss class and plan to catch up on the lesson with a peer.  Obtain and meet with your own personal spiritual director once a month.
 	- *Keep a journal (as best you can) with prompts 1. I notice...(awareness) 2. I'm curious about... (attentive exploration) 3.  I wonder how I can... (active response)*
-- Schedule
+- ## Schedule
 	- **Sept 12 INTRO!**
 		- **Didactic:** The Difference Between Religion and Spirituality
 		- **Article Discussion**:
