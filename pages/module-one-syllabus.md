@@ -48,6 +48,7 @@
 	- [Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
 - **Oct 17** **Didactic:** The Enneagram and Centers of Knowing withRev. Carol Hassell, M.Div
 	- **Article Discussion** Enneagram Centers of Knowing and the Understanding of the Sacred by Nathan Bettger, Presence Magazine
+	- [Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf](../assets/Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr_1738250841884_0.pdf)
 - **Oct 24**
 	- **Didactic:** The Enneagram in Spiritual Direction with Rev. Carol Hassell, M.Div
 - **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim
@@ -58,7 +59,5 @@
 		  2. Listening to the Whole Story of Grieving: A New Compass to Navigate a Griever's Healing Path by Shea Darian, Presence Magazine
 - **Nov 14**
 	- **Didactic:** When the Wound Goes Deep: How to Heal with Chaplain Terri Bolotin, M.Div, Atrium Health
-- **Nov 21** **and Dec 5** **Class Discussion:** 
-  
-  Spiritual Direction
+- **Nov 21** **and Dec 5** **Class Discussion:** Spiritual Direction
 - 101 verbatims
