@@ -21,7 +21,7 @@
 - [[SD Session Thu 12 Sep 2024]]
 -
 - ## Module 2 toc
+- [[Module 2 session 1]]
 - [[2025-01-09]]
 - [[2025-01-16]]
-- [[Module 2 session 1]]
 -
