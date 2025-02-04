@@ -1,11 +1,11 @@
-- **Welcome to CAP Module One: Understanding the Fundamentals of Spiritual Direction**
+- [[module-two-syllabus]]
+- ## **Welcome to CAP Module One: Understanding the Fundamentals of Spiritual Direction**
   
   September --December 2024
   
   **Instructor**: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
-  
-  **Required texts:**
-  1. Holy Listening by Margaret Gunther
+- ## **Required texts:**
+	- 1. Holy Listening by Margaret Gunther
 	- [[Margaret Guenther  Remembering Spiritual Masters  Spirituality & Practice]] [[Holy Listening notes]]
 	- [[Guenther_1992]] [[Guenther-notes]]
 	- [[Welcoming the stranger]]
