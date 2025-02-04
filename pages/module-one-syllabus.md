@@ -50,17 +50,14 @@
 	- **Article Discussion** Enneagram Centers of Knowing and the Understanding of the Sacred by Nathan Bettger, Presence Magazine
 - **Oct 24**
 	- **Didactic:** The Enneagram in Spiritual Direction with Rev. Carol Hassell, M.Div
-- **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim**
-  
-  Article Discussion:** Shame: A Primary Resistance to Movement in Spiritual Direction by James Bowler, Presence Magazine
-- **Nov 7** **Didactic:** Grief in SD**
-  
-  Article Discussion:** 
-  1. Spiritual Direction for the Bereaved" Grief, Spiritual Crisis and the Dark Night of the Soul by Tract Allendale Hawthorne, Presence
-  2. Listening to the Whole Story of Grieving: A New Compass to Navigate a Griever's Healing Path by Shea Darian, Presence Magazine
-- **Nov 14** 
-  
-  **Didactic:** When the Wound Goes Deep: How to Heal with Chaplain Terri Bolotin, M.Div, Atrium Health
+- **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim
+	- **Article Discussion:** Shame: A Primary Resistance to Movement in Spiritual Direction by James Bowler, Presence Magazine
+- **Nov 7** **Didactic:** Grief in SD
+	- **Article Discussion:**
+		- 1. Spiritual Direction for the Bereaved" Grief, Spiritual Crisis and the Dark Night of the Soul by Tract Allendale Hawthorne, Presence
+		  2. Listening to the Whole Story of Grieving: A New Compass to Navigate a Griever's Healing Path by Shea Darian, Presence Magazine
+- **Nov 14**
+	- **Didactic:** When the Wound Goes Deep: How to Heal with Chaplain Terri Bolotin, M.Div, Atrium Health
 - **Nov 21** **and Dec 5** **Class Discussion:** 
   
   Spiritual Direction
