@@ -23,8 +23,7 @@
 			- [Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf
 			- 2. Excerpts from The Way of Discernment by Elizabeth Liebert, SNJM
 			- [Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0.pdf]
-	- **Jan 30 Didactic:**
-		- Working with Dreams in Spiritual Direction
+	- **Jan 30 Didactic:** Working with Dreams in Spiritual Direction
 		- **Article Discussion**
 		- Dreamwork: Four Techniques for Spiritual Direction, Lisa Gonzales-Barnes, Presence Magazine.
 		- [dreamwork_1738170359855_0.pdf](../assets/dreamwork_1738170359855_0_1738243009895_0.pdf)
@@ -40,6 +39,7 @@
 	- **Mar 6** **Didactic: Part 1**
 		- Listening and Expressing Inner Dynamics Through Creativity with Rev. Carol Hassell
 		- ** Article Discussion:** Using the Arts in Spiritual Direction and Discernment, Christine Valters Paintner, Presence Magazine.
-- **Mar 13** **Didactic: Part 2** Listening and Expressing Inner**
-- Dynamics Through Creativity with Rev. Carol Hassell
-- **Mar 20** **and 27** Presentation of verbatims
+	- **Mar 13** **Didactic: Part 2**
+		- Listening and Expressing Inner**
+		- Dynamics Through Creativity with Rev. Carol Hassell
+	- **Mar 20** **and 27** Presentation of verbatims
