@@ -5,12 +5,13 @@
 - ## Instructor: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
 - ## Required texts:
 	- 1. *Discernment* by Rose Mary Dougherty, SSND -- [[Discernment Spiritual Awakening Clippings]]
-	  2. *Faith Styles* by John Mabry
+		- [[ignatian-rules-of-discernment]]
+	- 2. *Faith Styles* by John Mabry
 	  3. *In Touch* by John Prendergast, PHD
 - ## Assignments:
 	- **Read texts and articles sent for discussion and make notes**
 		- ~ including questions, stirrings, and noticings to process the material with your peers.
-		  Write a faux verbatim [using one of the concepts or modalities presented]{.underline} in one or more of the three texts read (a discernment issue, crisis of faith, tending inner guidance) and engage in peer supervision.
+		- Write a faux verbatim [using one of the concepts or modalities presented]{.underline} in one or more of the three texts read (a discernment issue, crisis of faith, tending inner guidance) and engage in peer supervision.
 - ## Schedule
 	- **Jan 9 Didactic:** Ignatian Discernment
 		- **Part 1** with Christine Pearson
