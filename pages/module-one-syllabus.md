@@ -42,43 +42,37 @@
 - [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
 - **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD**
 	- Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
+	-
 - **Sept 26 Didactic:** Switching Hats from Pastor to Spiritual Director
   with Rev. Anne Findlay-Chamberlain, M.Div ** Article Discussion** Facilitating an Adult Relationship with God by William Barry, SJ, Presence Magazine
 - **Oct 3** **Didactic:** Stages of Faith and Active Listening Skills**
   Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
-  
-  **Oct 10** **Didactic:** Compassionate Attention in SD**
+- **Oct 10** **Didactic:** Compassionate Attention in SD**
   
   Article Discussion** 
   
   1. Transformation of Consciousness: Becoming Prayer by Mary Rees
   2. The Practice of Contemplation as Witness and Resistance by Christine Valters Paintner, Presence Magazine
-  
-  **Oct 17** **Didactic:** The Enneagram and Centers of Knowing with
+- **Oct 17** **Didactic:** The Enneagram and Centers of Knowing with
   
   Rev. Carol Hassell, M.Div **
   
   Article Discussion** Enneagram Centers of Knowing and the Understanding of the Sacred by Nathan Bettger, Presence Magazine
-  
-  **Oct 24** **Didactic:** The Enneagram in Spiritual Direction with
+- **Oct 24** **Didactic:** The Enneagram in Spiritual Direction with
   
   Rev. Carol Hassell, M.Div
-  
-  **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim**
+- **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim**
   
   Article Discussion:** Shame: A Primary Resistance to Movement in Spiritual Direction by James Bowler, Presence Magazine
-  
-  **Nov 7** **Didactic:** Grief in SD**
+- **Nov 7** **Didactic:** Grief in SD**
   
   Article Discussion:** 
   1. Spiritual Direction for the Bereaved" Grief, Spiritual Crisis and the Dark Night of the Soul by Tract Allendale Hawthorne, Presence
   2. Listening to the Whole Story of Grieving: A New Compass to Navigate a Griever's Healing Path by Shea Darian, Presence Magazine
-  **Nov 14** 
+- **Nov 14** 
   
   **Didactic:** When the Wound Goes Deep: How to Heal with Chaplain Terri Bolotin, M.Div, Atrium Health
-  
-  **Nov 21** **and Dec 5** **Class Discussion:** 
+- **Nov 21** **and Dec 5** **Class Discussion:** 
   
   Spiritual Direction
-  
-  101 verbatims
+- 101 verbatims
