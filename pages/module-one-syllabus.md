@@ -43,17 +43,13 @@
 	- **Article Discussion** Experiencing God by James Keegan, SJ, Presence Magazine
 - **Oct 10** **Didactic:** Compassionate Attention in SD
 	- **Article Discussion**
-	- 1. Transformation of Consciousness: Becoming Prayer by Mary Rees
-	- 2. The Practice of Contemplation as Witness and Resistance by Christine Valters Paintner, Presence Magazine
-- [Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
-- **Oct 17** **Didactic:** The Enneagram and Centers of Knowing with
-  
-  Rev. Carol Hassell, M.Div **
-  
-  Article Discussion** Enneagram Centers of Knowing and the Understanding of the Sacred by Nathan Bettger, Presence Magazine
-- **Oct 24** **Didactic:** The Enneagram in Spiritual Direction with
-  
-  Rev. Carol Hassell, M.Div
+		- 1. Transformation of Consciousness: Becoming Prayer by Mary Rees
+		- 2. The Practice of Contemplation as Witness and Resistance by Christine Valters Paintner, Presence Magazine
+	- [Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr.pdf](../assets/Practice-Of-Contemplation-As-Witness--Resistance---Oct-3-202-53hs3_ocr_1738250581949_0.pdf)
+- **Oct 17** **Didactic:** The Enneagram and Centers of Knowing withRev. Carol Hassell, M.Div
+	- **Article Discussion** Enneagram Centers of Knowing and the Understanding of the Sacred by Nathan Bettger, Presence Magazine
+- **Oct 24**
+	- **Didactic:** The Enneagram in Spiritual Direction with Rev. Carol Hassell, M.Div
 - **Oct 31** **Didactic:** Shame in SD and Intro to Verbatim**
   
   Article Discussion:** Shame: A Primary Resistance to Movement in Spiritual Direction by James Bowler, Presence Magazine
