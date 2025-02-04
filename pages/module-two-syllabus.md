@@ -21,12 +21,14 @@
 - **Jan 23 Didactic:** Ways of Knowing in Discernment
 	- **Article Discussion:**
 		- 1. Working with Emotions in Spiritual Direction, Kathleen Fisher, Presence Magazine.
-		- [Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf)2. Excerpts from The Way of Discernment by Elizabeth Liebert, SNJM
+		- [Working with emotions in spiritual direction - Jan 11 2021 - 4-54 PM-1-output.pdf](../assets/Working_with_emotions_in_spiritual_direction_-_Jan_11_2021_-_4-54_PM-1-output_1738250795690_0.pdf
+		- )2. Excerpts from The Way of Discernment by Elizabeth Liebert, SNJM
 		- [Ways_Of_Knowing_In_Discernment_-_Jan_17_2025_-_9-01_AM_1737588746451_0.pdf]
 - **Jan 30 Didactic:**
-- Working with Dreams in Spiritual Direction
-- ** Article Discussion**
-- Dreamwork: Four Techniques for Spiritual Direction, Lisa Gonzales-Barnes, Presence Magazine.
+	- Working with Dreams in Spiritual Direction
+	- **Article Discussion**
+	- Dreamwork: Four Techniques for Spiritual Direction, Lisa Gonzales-Barnes, Presence Magazine.
+	- [dreamwork_1738170359855_0.pdf](../assets/dreamwork_1738170359855_0_1738243009895_0.pdf)
 - **Feb 6 Didactic:** Faith Styles and FACES (Dan Siegel theory)**
 - Book Discussion.**
 - *Please fill out test chart sent!*
