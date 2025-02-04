@@ -23,22 +23,16 @@
 	- [[women's theology]]
 - **Assignments:**
 - > Read weekly articles for discussion and make notes  including questions, stirrings, and noticings to process the material with your peers.  Write a faux verbatim after reading [Holy Listening]{.underline} and [Spiritual Direction 101]{.underline} [(due Nov 21 or]{.mark} [Dec 5]{.mark} class) to present to the class.
-  
-  **Expectations:**
-  
-  Openness to the Spirit and respect for all faith traditions!  Faithful attendance and active participation for each class, Thursdays, 11:30-1:30. Please give advance notice if you MUST miss class and plan to catch up on the lesson with a peer.  Obtain and meet with your own personal spiritual director once a month.
-  
-  *Keep a journal (as best you can) with prompts 1. I notice...(awareness) 2. I'm curious about... (attentive exploration) 3.  I wonder how I can... (active response)*
-  
-  **[Schedule: ]{.underline}Sept 12 INTRO!**
+- **Expectations:**
+	- > Openness to the Spirit and respect for all faith traditions!  Faithful attendance and active participation for each class, Thursdays, 11:30-1:30. Please give advance notice if you MUST miss class and plan to catch up on the lesson with a peer.  Obtain and meet with your own personal spiritual director once a month.
+	- *Keep a journal (as best you can) with prompts 1. I notice...(awareness) 2. I'm curious about... (attentive exploration) 3.  I wonder how I can... (active response)*
+- **[Schedule: ]{.underline}Sept 12 INTRO!**
   **Didactic:** The Difference Between Religion and Spirituality
-  
-  **Article Discussion**:
-  
-  1. Defining Spiritual Direction from "Inviting the Mystic, Supporting the Prophet: An Introduction to SD by Katherine Marie Dyckman, SNJM and L. Patrick Carroll, SJ 
-  2. The Art of Spiritual Direction by Madeline Birmingham and William Connolly, SJ **
-- [Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
-- [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
+	- **Article Discussion**:
+	- 1. Defining Spiritual Direction from "Inviting the Mystic, Supporting the Prophet: An Introduction to SD by Katherine Marie Dyckman, SNJM and L. Patrick Carroll, SJ 
+	  2. The Art of Spiritual Direction by Madeline Birmingham and William Connolly, SJ **
+	- [Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
+	- [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
 - **Sept 19 Didactic:** Active Listening SkillsContemplative & Evocative Style SD
 	- **Article Discussion** Fostering the Contemplative Attitude from The Practice of Spiritual Direction by William Barry, SJ and William Connolly, SJ
 	- [Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined.pdf](../assets/Fostering-the-Contemplative-Attitude---Sep-8-2024---4-19-PM--feqbp_ocr-combined_1738250487125_0.pdf)
