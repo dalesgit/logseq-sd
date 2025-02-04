@@ -1,23 +1,21 @@
 - [[module-two-syllabus]]
 - ## **Welcome to CAP Module One: Understanding the Fundamentals of Spiritual Direction**
-  
-  September --December 2024
-  
-  **Instructor**: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
+	- September --December 2024
+	- **Instructor**: Linda Serepca (<Lindaserepca10@gmail.com>) 704-776-3787
 - ## **Required texts:**
 	- 1. Holy Listening by Margaret Gunther
-	- [[Margaret Guenther  Remembering Spiritual Masters  Spirituality & Practice]] [[Holy Listening notes]]
-	- [[Guenther_1992]] [[Guenther-notes]]
-	- [[Welcoming the stranger]]
-	- [[Good Teachers]]
-	- [[Midwife to the soul]]
-	- [[Women and spiritual direction]]
-- 2. Spiritual Direction 101 by Teresa Blythe
-	- [[101]]
-	- [[SD-101-1-4]]
-	- [[SD-101-5-6]]
-	- [[SD-101-7-8]]
-	- [[SD-101-9-11]]
+		- [[Margaret Guenther  Remembering Spiritual Masters  Spirituality & Practice]] [[Holy Listening notes]]
+		- [[Guenther_1992]] [[Guenther-notes]]
+		- [[Welcoming the stranger]]
+		- [[Good Teachers]]
+		- [[Midwife to the soul]]
+		- [[Women and spiritual direction]]
+	- 2. Spiritual Direction 101 by Teresa Blythe
+		- [[101]]
+		- [[SD-101-1-4]]
+		- [[SD-101-5-6]]
+		- [[SD-101-7-8]]
+		- [[SD-101-9-11]]
 - ## Extra
 	- [[1729776317-spirituality-summit]]
 	- [[women's theology]]
