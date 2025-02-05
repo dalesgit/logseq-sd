@@ -4,42 +4,6 @@
     "type": "split",
     "children": [
       {
-        "id": "4c35d858aa4a4360",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "72ea717c20f06890",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "pages/SD training resources.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "SD training resources"
-            }
-          }
-        ]
-      },
-      {
-        "id": "ffcaf8e4a039c876",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "1a4383a1aef9ec7d",
-            "type": "leaf",
-            "state": {
-              "type": "empty",
-              "state": {},
-              "icon": "lucide-file",
-              "title": "New tab"
-            }
-          }
-        ]
-      },
-      {
         "id": "f29bca623032365f",
         "type": "tabs",
         "children": [
@@ -200,8 +164,9 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "1a4383a1aef9ec7d",
+  "active": "e89a4ac03749fc25",
   "lastOpenFiles": [
+    "assets/Listening-to-the-Whole-Story-Of-Grieving---Oct-7-2023---5-46-ap501_ocr_1738250517855_0.pdf",
     "pages/SD training resources.md",
     "assets/module2-syllabus.md",
     "assets/module-one-syllabus.md",
