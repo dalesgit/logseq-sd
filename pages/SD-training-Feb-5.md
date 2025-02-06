@@ -1,6 +1,5 @@
 - [Dreams St Monica Circle.docx](../assets/Dreams_St_Monica_Circle_1738800251457_0.docx)
 - ![Faith Styles Test - Jan 30 2025 - 2-12 PM.pdf](../assets/Faith_Styles_Test_-_Jan_30_2025_-_2-12_PM_1738800286358_0.pdf)
-  collapsed:: true
 	- Imagine divine
 		- unknowable mystery (**unknowable mystery**)
 	- one's relationship to divine
