@@ -61,3 +61,4 @@
 		- LS: What might bring you peace? (in the disagreements with someone)
 		- be careful yes/no questions
 		- LS: I see in **supervision**, when an SD asks a question repeatedly, it is mirroring what's in us. Shea used the word "diminishes". Image work is good for the spirit: What would it be like to have Dante's view alongside a Carravagio.
+- Next week 2 part series about **family systems**.
