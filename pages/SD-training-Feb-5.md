@@ -46,4 +46,5 @@
 	- Shea: What works for a person in some settings but not in other settings.
 	- LS: It's all about what's going on within ourselves. (cf. her ability to have SDee who who strongly contrary to her experience with 2 trans children)
 	- Cherrie: Benee Brown says, "If **shame** worked I'd use it, but it doesn't work."
-	- LS: When we have buttons pushed: shadow side, seeing something of my past in you that's not healed, overly inflated ego, or event of the past
+	- LS: When we have buttons pushed: shadow side, seeing something of my past in you that's not healed, overly inflated ego, or event of the past  -- that gives the area that we have to work on. Anne: when something makes us uncomfortable.
+	-
