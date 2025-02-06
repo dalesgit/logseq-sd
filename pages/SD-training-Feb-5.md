@@ -38,4 +38,4 @@
 	- Anne knew someone who once had been intrusive and hard as a new Christian. Year later now he's moderate considerably. Importance of safety and trust in the activity of God.
 	- Allison used to feel heaviness in talking with someone from other faith style. Not so much any more. More accepting of me in my own skin.
 	- Anne: waiting and patience have a major role in SD. Asking "Where is this directee finding life?"
-	-
+	- Theology can be  black and white. Go to psychology or experience and it may open up reflection.
