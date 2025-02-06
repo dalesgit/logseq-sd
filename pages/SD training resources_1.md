@@ -3,10 +3,10 @@
 - [CAP Module One Syllabus.docx](../assets/CAP_Module_One_Syllabus_1738252107302_0.docx)
 - [[module-one-syllabus]]
 - [[module2-syllabus]]
-## extra
+- ## extra
 - [Cap Roster 2024.docx](../assets/Cap_Roster_2024_1738243110125_0.docx)
 - [verbatim template updated.docx](../assets/verbatim_template_updated_1738242979833_0.docx)
-## PDFs
+- ## PDFs
 - [Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr.pdf](../assets/Art-Of-Spiritual-Direction---Aug-15-2024---9-42-PM-gc8dx_ocr_1738243095136_0.pdf)
 - [Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr.pdf](../assets/Contemplative-and-Evocative-Presence-Skills---Sep-13-2024----pwxi7_ocr_1738243124785_0.pdf)
 - [Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr.pdf](../assets/Defining-Spiritual-Direction---Aug-25-2024---5-30-PM-o4qoj_ocr_1738243138828_0.pdf)
@@ -27,15 +27,14 @@
 - [[ignatian-rules-of-discernment]]
 - [[Discernment Spiritual Awakening Clippings]]
 - [[Module 2 session 1]]
-
-## Books
+- ## Books
 - Guenther [[Guenther-notes]]
 - [[SF Ch/ 6 - Drawing strength from prayer]]
 - [[women's theology]]
 - [[Women and spiritual direction]]
-- [[Faith Styles]]
+- [[Faith Styles notes]]
 - [[In touch]]
 - [[Spiritual Direction 101-notes-index]]
-## Short
+- ## Short
 - [[teilhard]]
 - [[SD curious people]]
