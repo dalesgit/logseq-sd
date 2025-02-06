@@ -26,4 +26,5 @@
 		- Ethical humanists
 - [[Faith Styles notes]]
 - Notes for the day
-	- Jim Gray is returning to the church. LS knew him some time ago when he did module
+	- [[Jim Gray]] is returning to the church. LS knew him some time ago when he did module 1 and then dropped out. It was important to him that his SD be a priest
+	-
