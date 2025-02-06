@@ -31,4 +31,4 @@
 	- Anne lived time in Hawai'i
 	- Nina (and Craig) Methodists who are going through alienation and separation now. Presbyterians (Cherrie) did that a while ago.
 	- LS: reaching out to e.g. rigid traditionalists: this is like ... as other is to ... (analogy).
-	- Anne: woman who had come to her
+	- Anne: woman who had come to her who had witnessed husband sexually assaulting child. "I can't forgive him" thought the church said she must submit to husband.
