@@ -1,3 +1,3 @@
 - two triangles in a 6 pointed stars
-- s
+-
 -
