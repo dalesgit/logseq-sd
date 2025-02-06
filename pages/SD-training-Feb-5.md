@@ -39,3 +39,4 @@
 	- Allison used to feel heaviness in talking with someone from other faith style. Not so much any more. More accepting of me in my own skin.
 	- Anne: waiting and patience have a major role in SD. Asking "Where is this directee finding life?"
 	- Theology can be  black and white. Go to psychology or experience and it may open up reflection.
+	- Shea had a problem with a musician who asked, "Do you not believe in hell?" She glad for awareness of faith styles comes up in various settings, not just
