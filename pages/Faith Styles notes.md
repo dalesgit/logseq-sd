@@ -1,3 +1,27 @@
 - two triangles in a 6 pointed stars
--
--
+- Introduction
+	- because in my experience students find Fowler baroque and difficult to grasp, I had quickly turned my attention to Scott Peck’s simplified model (explicated below).
+	- All people can experience growth and greater connection to the Divine and their communities, and it is not the job of spiritual guides to judge the propriety of one style over another.
+	- Being familiar with a model such as Faith Styles will help us to quickly and easily assess a client, usually within the first or second session, whereupon we may better be able to determine if the match is a good one,
+	- ()1)How is the Divine imaged?(2) What is the nature of one’s relationship with the Divine? (3) How does one construct meaning in the world? (4) What are the accepted sources of spiritual wisdom? (5) How is spiritual growth assessed? (6) What spiritual disciplines and practices are honored? (7) What are the advantages of the style? (8) What are the disadvantages?
+	- While I favor the non-directive method in my own practice, it is also true that the directive method is unduly maligned and often appropriate.
+- Tradiional
+	- The cosmology of this system is hierarchical, with a clear delineation of authority in both heaven and earth. Every person in society has a proper place in this system, and life is easiest when roles are respected and embodied willingly.
+	- In this system meaning is found by discerning the Divine will for one’s life and aligning with that will to the greatest degree possible.
+	- Traditional systems usually have a well-developed cosmology and eschatology, so believers have a good idea of what the Big Picture is, how they fit into it, and where everything is headed
+	- Traditional Believers are likely to evaluate Spiritual Growth by the extent to which one has submitted one’s own will to the Divine will, and surrendered one’s own understanding to the external authority of scripture and tradition.
+	- Traditional model afford believers a great rock of safety in what otherwise often feels like a very scary world.
+	- There are also dangers to the Traditional paradigm that even those who live within this system acknowledge and must therefore exercise caution. Hal mentions the “danger of being too narrow and too conservative.
+	- Traditional Believers may also confuse the hierarchical authority of the Divine for the authority of a religious hierarchy, or even a local community leader.
+	- Spiritual guides may need to remind Traditional Believers that the Divine mercy is often more generous than our own proclivity for self-condemnation may suggest.
+- Chapt 7
+	- It is important for us, as spiritual guides, to recognize not only our strengths, but also our limitations.
+	- Traditional Believers are the only style that is limited to their own specific religious tradition.
+	- Unfortunately, as we have said, Jack Believers rarely come for spiritual guidance.
+	- Jack Believers can see in Liberals an example of forgiveness, love, and tolerance that they may never have experienced from a person of faith before.
+	- Eclectics that are too wounded by their traditions of origin may or may not be able to work with clients from that tradition.
+	- The Eclectic must resist the temptation to instill faith in the Humanist, and the Humanist must resist the temptation to convince the Eclectic of the silliness of spiritual phenomena.
+	- Unfortunately, there are few Ethical Humanists training as spiritual guides, for obvious reasons. If we widen our understanding of spiritual guidance beyond the immediately visible spiritual guidance community, however, we will see that Ethical Humanists are already training as social workers, therapists, life and values coaches, and in the Unitarian Universalist denomination, as ministers and religious educators.
+- chapt. 8
+	- Most spiritual guides would agree that trying to “convert” a client from one faith style to another is a form of spiritual violence and is always abhorrent.
+	-

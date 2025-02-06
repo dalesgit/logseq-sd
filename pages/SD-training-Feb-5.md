@@ -25,3 +25,4 @@
 		- Spiritual eclectics
 		- Ethical humanists
 - [[Faith Styles notes]]
+	-
