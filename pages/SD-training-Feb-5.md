@@ -1,5 +1,6 @@
 - [Dreams St Monica Circle.docx](../assets/Dreams_St_Monica_Circle_1738800251457_0.docx)
 - ![Faith Styles Test - Jan 30 2025 - 2-12 PM.pdf](../assets/Faith_Styles_Test_-_Jan_30_2025_-_2-12_PM_1738800286358_0.pdf)
+  collapsed:: true
 	- Imagine divine
 		- unknowable mystery (**unknowable mystery**)
 	- one's relationship to divine
@@ -13,6 +14,7 @@
 	- practices honored
 		- (**traditional**)
 - ![Faith Styles Chart - Jan 30 2025 - 2-19 PM.pdf](../assets/Faith_Styles_Chart_-_Jan_30_2025_-_2-19_PM_1738800264316_0.pdf)
+  collapsed:: true
 	- Triangle 2
 		- Liberal believers
 		- religious agnostics
@@ -25,6 +27,7 @@
 - Notes for the day
 	- [[Jim Gray]] is returning to the church. LS knew him some time ago when he did module 1 and then dropped out. It was important to him that his SD be a priest
 	- Anne talked about shifting from pastor to SD
+	  collapsed:: true
 		- "Pray as you go" is an Ignatian daily post. https://pray-as-you-go.org/
 		- Song *come be with me* by Keith Duke
 		- Poem by Linda Ferenbacher sp?
