@@ -44,4 +44,5 @@
 	- Craig: in some cases the style works for the individual but not for those around her.
 	- LS: maybe they are not even remorseful. Ask "what would be your desire for things?"
 	- Shea: What works for a person in some settings but not in other settings.
-	- LS: It's all about what's going on
+	- LS: It's all about what's going on within ourselves. (cf. her ability to have SDee who who strongly contrary to her experience with 2 trans children)
+	- Cherrie: Benee Brown says
