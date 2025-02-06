@@ -26,15 +26,15 @@
 - [[Faith Styles notes]]
 - Notes for the day
 	- [[Jim Gray]] is returning to the church. LS knew him some time ago when he did module 1 and then dropped out. It was important to him that his SD be a priest
-	- Anne talked about shifting from pastor to SD
-	  collapsed:: true
+	- Anne
 		- "Pray as you go" is an Ignatian daily post. https://pray-as-you-go.org/
 		- Song *come be with me* by Keith Duke
 		- Poem by Linda Ferenbacher sp?
-	- Anne lived time in Hawai'i
-	- Nina (and Craig) Methodists who are going through alienation and separation now. Presbyterians (Cherrie) did that a while ago.
-	- LS: reaching out to e.g. rigid traditionalists: this is like ... as other is to ... (analogy).
-	- Anne: woman who had come to her who had witnessed husband sexually assaulting child. "I can't forgive him" thought the church said she must submit to husband.
+		- talked about shifting from pastor to SD
+		- Anne lived time in Hawai'i
+		- Nina (and Craig) Methodists who are going through alienation and separation now. Presbyterians (Cherrie) did that a while ago.
+		- LS: reaching out to e.g. rigid traditionalists: this is like ... as other is to ... (analogy).
+		- Anne: woman who had come to her who had witnessed husband sexually assaulting child. "I can't forgive him" thought the church said she must submit to husband.
 	- Anne knew someone who once had been intrusive and hard as a new Christian. Year later now he's moderate considerably. Importance of safety and trust in the activity of God.
 	- Allison used to feel heaviness in talking with someone from other faith style. Not so much any more. More accepting of me in my own skin.
 	- Anne: waiting and patience have a major role in SD. Asking "Where is this directee finding life?"
