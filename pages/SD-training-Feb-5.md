@@ -25,4 +25,5 @@
 		- Spiritual eclectics
 		- Ethical humanists
 - [[Faith Styles notes]]
-	-
+- Notes for the day
+	- Jim Gray is returning to the church. LS knew him some time ago when he did module
