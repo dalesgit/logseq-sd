@@ -36,4 +36,4 @@
 	- LS: reaching out to e.g. rigid traditionalists: this is like ... as other is to ... (analogy).
 	- Anne: woman who had come to her who had witnessed husband sexually assaulting child. "I can't forgive him" thought the church said she must submit to husband.
 	- Anne knew someone who once had been intrusive and hard as a new Christian. Year later now he's moderate considerably. Importance of safety and trust in the activity of God.
-	- Allison used to feel heaviness in talking with someone from other faith style. Not so much any more.
+	- Allison used to feel heaviness in talking with someone from other faith style. Not so much any more. More accepting of me in my own skin.
