@@ -41,4 +41,5 @@
 	- Theology can be  black and white. Go to psychology or experience and it may open up reflection.
 	- Shea had a problem with a musician who asked, "Do you not believe in hell?" She glad for awareness of faith styles comes up in various settings, not just SD.
 	- Cherrie: a teacher who described **orthodoxy** as being like a ball field. Balls can be hit far, short, right field, left field. It's about setting where the hit becomes a foul.
-	- Craig: in some cases the
+	- Craig: in some cases the style works for the individual but not for those around her.
+	- LS: maybe they are not even remorseful. Ask "what would be
