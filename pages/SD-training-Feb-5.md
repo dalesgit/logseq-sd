@@ -28,4 +28,4 @@
 		- "Pray as you go" is an Ignatian daily post. https://pray-as-you-go.org/
 		- Song *come be with me* by Keith Duke
 		- Poem by Linda Ferenbacher sp?
--
+	- Anne lived time in Hawai'i
