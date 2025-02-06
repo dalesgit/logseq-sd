@@ -41,10 +41,11 @@
 	- Theology can be  black and white. Go to psychology or experience and it may open up reflection.
 		- Shea had a problem with a musician who asked, "Do you not believe in hell?" She glad for awareness of faith styles comes up in various settings, not just SD.
 		- Cherrie: a teacher who described **orthodoxy** as being like a ball field. Balls can be hit far, short, right field, left field. It's about setting where the hit becomes a foul.
+	- Styles
 		- Craig: in some cases the style works for the individual but not for those around her.
 		- LS: maybe they are not even remorseful. Ask "what would be your desire for things?"
 		- Shea: What works for a person in some settings but not in other settings.
 		- LS: It's all about what's going on within ourselves. (cf. her ability to have SDee who who strongly contrary to her experience with 2 trans children)
-		- Cherrie: Benee Brown says, "If **shame** worked I'd use it, but it doesn't work."
-		- LS: When we have buttons pushed: shadow side, seeing something of my past in you that's not healed, overly inflated ego, or event of the past  -- that gives the area that we have to work on. Anne: when something makes us uncomfortable.
+	- Cherrie: Benee Brown says, "If **shame** worked I'd use it, but it doesn't work."
+	- LS: When we have buttons pushed: shadow side, seeing something of my past in you that's not healed, overly inflated ego, or event of the past  -- that gives the area that we have to work on. Anne: when something makes us uncomfortable.
 	- When we are triggered we're not quite 100% present, listening.
