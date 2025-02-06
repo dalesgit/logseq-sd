@@ -60,4 +60,4 @@
 		- Where do you see any overlap between the two styles.
 		- LS: What might bring you peace? (in the disagreements with someone)
 		- be careful yes/no questions
-		- LS
+		- LS: I see in **suprvision**, when an SD asks a question repeatedly, it is mirroring what's in us.
