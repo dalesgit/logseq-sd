@@ -20,7 +20,6 @@
 		- religious agnostics
 		- Jack believers
 	- Triangle 1
-	  collapsed:: true
 		- Traditional
 		- Spiritual eclectics
 		- Ethical humanists
