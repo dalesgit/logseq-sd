@@ -45,4 +45,4 @@
 	- LS: maybe they are not even remorseful. Ask "what would be your desire for things?"
 	- Shea: What works for a person in some settings but not in other settings.
 	- LS: It's all about what's going on within ourselves. (cf. her ability to have SDee who who strongly contrary to her experience with 2 trans children)
-	- Cherrie: Benee Brown says
+	- Cherrie: Benee Brown says, "If **shame** worked I'd use it, but it doesn't work."
