@@ -56,4 +56,4 @@
 		- LS: When we have buttons pushed: shadow side, seeing something of my past in you that's not healed, overly inflated ego, or event of the past  -- that gives the area that we have to work on.
 		- Anne: when something makes us uncomfortable.
 		- When we are triggered we're not quite 100% present, listening.
-	-
+	- 15 minutes of acting out a scenario: Shea as SD, Craig as SDee. Setting is a rigid style causing conflict with family.
