@@ -60,3 +60,4 @@
 		- Where do you see any overlap between the two styles.
 		- LS: What might bring you peace? (in the disagreements with someone)
 		- be careful yes/no questions
+		- LS
