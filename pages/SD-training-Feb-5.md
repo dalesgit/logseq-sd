@@ -14,7 +14,6 @@
 		- (**traditional**)
 - ![Faith Styles Chart - Jan 30 2025 - 2-19 PM.pdf](../assets/Faith_Styles_Chart_-_Jan_30_2025_-_2-19_PM_1738800264316_0.pdf)
 	- Triangle 2
-	  collapsed:: true
 		- Liberal believers
 		- religious agnostics
 		- Jack believers
@@ -29,5 +28,5 @@
 	- Anne talked about shifting from pastor to SD
 		- "Pray as you go" is an Ignatian daily post. https://pray-as-you-go.org/
 		- Song *come be with me* by Keith Duke
-		-
+		- Poem by Linda Ferenbacher sp?
 -
