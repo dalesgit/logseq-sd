@@ -34,11 +34,11 @@
 		- talked about shifting from pastor to SD
 		- Nina (and Craig) Methodists who are going through alienation and separation now. Presbyterians (Cherrie) did that a while ago.
 		- LS: reaching out to e.g. rigid traditionalists: this is like ... as other is to ... (analogy).
-		- Anne: woman who had come to her who had witnessed husband sexually assaulting child. "I can't forgive him" thought the church said she must submit to husband.
+	- Anne: woman who had come to her who had witnessed husband sexually assaulting child. "I can't forgive him" thought the church said she must submit to husband.
 		- Anne knew someone who once had been intrusive and hard as a new Christian. Year later now he's moderate considerably. Importance of safety and trust in the activity of God.
 		- Allison used to feel heaviness in talking with someone from other faith style. Not so much any more. More accepting of me in my own skin.
 		- Anne: waiting and patience have a major role in SD. Asking "Where is this directee finding life?"
-		- Theology can be  black and white. Go to psychology or experience and it may open up reflection.
+	- Theology can be  black and white. Go to psychology or experience and it may open up reflection.
 		- Shea had a problem with a musician who asked, "Do you not believe in hell?" She glad for awareness of faith styles comes up in various settings, not just SD.
 		- Cherrie: a teacher who described **orthodoxy** as being like a ball field. Balls can be hit far, short, right field, left field. It's about setting where the hit becomes a foul.
 		- Craig: in some cases the style works for the individual but not for those around her.
