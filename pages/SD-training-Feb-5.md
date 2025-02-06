@@ -30,4 +30,5 @@
 		- Poem by Linda Ferenbacher sp?
 	- Anne lived time in Hawai'i
 	- Nina (and Craig) Methodists who are going through alienation and separation now. Presbyterians (Cherrie) did that a while ago.
-	- LS: reaching out
+	- LS: reaching out to e.g. rigid traditionalists: this is like ... as other is to ... (analogy).
+	- Anne: woman who had come to her
