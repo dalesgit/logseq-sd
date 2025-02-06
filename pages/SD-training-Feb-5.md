@@ -29,3 +29,4 @@
 		- Song *come be with me* by Keith Duke
 		- Poem by Linda Ferenbacher sp?
 	- Anne lived time in Hawai'i
+	- Nina (and Craig) Methodists who are going through alienation and separation now. Presbyterians (Cherrie) did that a while ago.
