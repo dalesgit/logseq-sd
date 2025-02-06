@@ -57,3 +57,4 @@
 		- Anne: when something makes us uncomfortable.
 		- When we are triggered we're not quite 100% present, listening.
 	- 15 minutes of acting out a scenario: Shea as SD, Craig as SDee. Setting is a rigid style causing conflict with family.
+		-
