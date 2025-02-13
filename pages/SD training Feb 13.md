@@ -95,4 +95,5 @@
 	- Bonnie White: self therapy
 - LS: does this with herself. e.g. when she is hurt, or ... let the Self tend to it.
 - cf. article with the acronym **RAIN**
-- LS: often
+- LS: often gives names to the parts as they emerge. e.g. Cherie names her "self" part **Aria**.
+-
