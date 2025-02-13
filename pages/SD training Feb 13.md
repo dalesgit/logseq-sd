@@ -26,5 +26,6 @@
 	- tap into your true self, connected, we are in community, close to others, support in harmonious ways
 	- interested having relationship with all the parts of me
 	- sit for a moment in the curious self
-	- I am able to have compassion, others respond,
+	- I am able to have compassion, others respond, compassionate self
+	- affirm that I am calm centered grounded abiity to not avoid emotion, have essence of healing and can transform pain by  my calm nature
 - Discussion
