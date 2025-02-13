@@ -21,5 +21,6 @@
 	- bottome feet are roots going to source of life, deep into the soil source of life
 	- rooots gone deep ... even deeper
 	- deeply grounded
-	-
+	- being given all nutrition needed, water is nourishing. up out top of head
+	- feel the flow
 - Discussion
