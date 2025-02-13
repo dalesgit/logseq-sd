@@ -39,6 +39,7 @@
 	- Reading notes at [[Feb 11th, 2025]]
 - Video: Richard Schwartz
 	- 30 min. link ... Becoming Whole: healing the exiled and rejected parts of ourselves
+	  collapsed:: true
 		- natural state is to be **multiple**
 		- ask the **part**: "What do you want to know?" "What would happen if the part didn't work so hard?"
 		- Richard did a meditation with interviewer
@@ -55,6 +56,7 @@
 			- The self has a powerful desire to stand up to **injustice** -- cf. my present awareness. cf. what he calls "self" is what Buddhism calls "no-self".
 	- Danny did this with a therapist who made him actually address the parts. Takeaways then ... got to live with it, do therapy with it ...
 	- LS: as SD "when we encounter a part in SD, we are actually talking with the part ... not the person (self)"
+	  collapsed:: true
 		- SD questions for IFS
 			- what do you want me to know?
 			- what are you afraid might happen if you don't ...
