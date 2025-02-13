@@ -58,7 +58,11 @@
 		- SD questions for IFS
 			- what do you want me to know?
 			- what are you afraid might happen if you don't ...
-			-
+			- What are you protectin? What memories are arising?
+			- What age are you?
+			- True self: How do you feel towards part?
+			- Ask the part if it seneses you get it, understand? Can you tell the part all that you see. Is there more it wants you to know?
+	- 2 way prayer:
 - chat
   collapsed:: true
 	- 11:35:40 From shea watts he/him/his To Everyone:
