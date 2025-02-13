@@ -52,4 +52,4 @@
 			- in family therapy people didn't get well. But they talked about all these "parts". [This was the origin of Schwartz's theory.]
 		- These feels a lot like LS's strategies with me.
 			- notice the things that trigger us. e.g. looking at Trump why trigger? My need to control, bully?
-			- The self has a powerful desire to stand up to **injustice** -- cf. my present awareness. cf. what he calls "self" is what
+			- The self has a powerful desire to stand up to **injustice** -- cf. my present awareness. cf. what he calls "self" is what Buddhism calls "no-self".
