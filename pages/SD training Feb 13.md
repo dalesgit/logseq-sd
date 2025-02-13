@@ -3,7 +3,7 @@
 	- Craig is doing his thing at "the farm" ??
 	- Danny late
 	- allison: son and daughter in law divorcing. she's crushed.
-	- LS last night dream. loading tray at a buffet line. then she dropped the plate. Journaling it: asking what is the dream saying? what want me to do?
+	- LS last night dream. loading tray at a buffet line. then she dropped the plate. Journaling it: asking what is the dream saying? what want me to do? let it be on the floor? permission to let it go?
 		- drs. rec'd a new radiation therapy
 			- proton radiation.. very targeted radiation. depends on what kind of  tumors he's got.
 - Discussion
