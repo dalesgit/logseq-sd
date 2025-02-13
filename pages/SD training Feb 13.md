@@ -39,4 +39,5 @@
 	- Reading notes at [[Feb 11th, 2025]]
 - Video: Richard Schwartz
 	- 30 min. link ... Becoming Whole: healing the exiled and rejected parts of ourselves
+		- natural state is to be **multiple**
 		-
