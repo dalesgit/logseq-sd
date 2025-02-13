@@ -45,3 +45,5 @@
 		- healing: witness what part went through (then), literally get the part out of there to a safe place, then to unburden (release)  the part from that time. Bring in the protector to show that it's ok.
 		- internal practices for us to move to heaing?
 			- people can get to know their protectors. Most people can't do it alone. Some can.
+			- too often in the therapeutic community **the ego** becomes the bad guy.
+			- Don't  try to get rid of the anxiety but
