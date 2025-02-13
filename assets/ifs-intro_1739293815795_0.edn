@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 {:highlights [{:id #uuid "67ab86f0-20bc-4bc5-b310-1b2d3c77c5a5",
                :page 1,
                :position {:bounding {:x1 91.9367904663086,
@@ -886,3 +887,6 @@
                :content {:text "he Self is compassionate"},
                :properties {:color "yellow"}}],
  :extra {:page 5}}
+=======
+{:highlights [], :extra {:page 1}}
+>>>>>>> 0d42e07d86a014a089a4a610531053eb56da5955
