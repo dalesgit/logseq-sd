@@ -9,6 +9,7 @@
 			- proton radiation.. very targeted radiation. depends on what kind of  tumors he's got.
 	- group bonding work. Helpful to be able to put into words -- strengthens for do with SDee
 - Meditation practice
+  collapsed:: true
 	- Allison has heard it (on Sunday)
 	- relax
 	- land in body
@@ -29,4 +30,6 @@
 	- I am able to have compassion, others respond, compassionate self
 	- affirm that I am calm centered grounded ability to not avoid emotion, have essence of healing and can transform pain by  my calm nature
 	- MY image began with the father in the forest
+	- the bridge is to provide some space with our current burdens
 - Discussion
+	-
