@@ -48,3 +48,4 @@
 			- too often in the therapeutic community **the ego** becomes the bad guy.
 			- Don't  try to get rid of the e.g. anxiety -- but get to know the part
 			- culture creating personas out of trauma
+			- "Don't tell me
