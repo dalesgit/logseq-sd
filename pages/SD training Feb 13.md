@@ -19,5 +19,7 @@
 	- there is a meadow which brings peace and comfort
 	- bottom of feet large tree trunks
 	- bottome feet are roots going to source of life, deep into the soil source of life
+	- rooots gone deep ... even deeper
+	- deeply grounded
 	-
 - Discussion
