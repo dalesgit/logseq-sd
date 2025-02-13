@@ -38,4 +38,5 @@
 		- he noticed people sitting with clients (many eating disorder), he kept hearing about **parts**. "There's a part of me that ..."
 	- Reading notes at [[Feb 11th, 2025]]
 - Video: Richard Schwartz
-	- 30 min. link ... Becoming Whole:
+	- 30 min. link ... Becoming Whole: healing the exiled and rejected parts of ourselves
+		-
