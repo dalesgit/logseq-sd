@@ -2,4 +2,5 @@
 - Intro
 	- Craig is doing his thing at "the farm" ??
 	- Danny late
+	- allison: son and daughter in law divorcing. she's crushed.
 - Discussion
