@@ -1,4 +1,5 @@
 - [[Feb 13th, 2025]]
 - Intro
-	-
+	- Craig is doing his thing at "the farm" ??
+	- Danny late
 - Discussion
