@@ -91,4 +91,4 @@
 	  	
 	  12:57:36 From shea watts he/him/his To Everyone:
 	  	Linda has engaged me in this way, and I found it very helpful. Learning to talk to parts of myself helped with my own self-estrangement.
-	- Bonnie White: self
+	- Bonnie White: self therapy
