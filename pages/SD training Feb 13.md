@@ -23,4 +23,5 @@
 	- deeply grounded
 	- being given all nutrition needed, water is nourishing. up out top of head
 	- feel the flow
+	- tap into your true self, connected
 - Discussion
