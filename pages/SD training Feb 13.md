@@ -64,7 +64,7 @@
 			- Ask the part if it seneses you get it, understand? Can you tell the part all that you see. Is there more it wants you to know?
 			- ask permission to go the exile to be with it in the way it needs.
 			- Is there anything it needs you to do for it?
-			- Ask it ifyou can bring it with you to the now
+			- Ask it ifyou can bring it with you to the now? If not, you can go to a fantasy.
 	- 2 way prayer: draw line. What do I say? What is God saying?
 - chat
   collapsed:: true
