@@ -71,6 +71,7 @@
 	- 2 way prayer: draw line. What do I say? What is God saying?
 	- **Whatever you resist ... persists**.
 - chat
+  collapsed:: true
 	- 11:35:40 From shea watts he/him/his To Everyone:
 	  	I’m sorry to hear that. I’ll be praying for you and your family.
 	  	
@@ -92,3 +93,4 @@
 	  12:57:36 From shea watts he/him/his To Everyone:
 	  	Linda has engaged me in this way, and I found it very helpful. Learning to talk to parts of myself helped with my own self-estrangement.
 	- Bonnie White: self therapy
+- LS: does this with herself. e.g. when she is hurt, or ... let the Self tend to it.
