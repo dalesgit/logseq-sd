@@ -5,5 +5,5 @@
 	- allison: son and daughter in law divorcing. she's crushed.
 	- LS last night dream. loading tray at a buffet line. then she dropped the plate. Journaling it: asking what is the dream saying? what want me to do?
 		- drs. rec'd a new radiation therapy
-		-
+			- proton radiation.. very targeted radiation. depends on what kind of  tumors he's got.
 - Discussion
