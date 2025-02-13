@@ -42,4 +42,4 @@
 		- natural state is to be **multiple**
 		- ask the **part**: "What do you want to know?" "What would happen if the part didn't work so hard?"
 		- Richard did a meditation with interviewer
-		-
+		- healing: witness what part went through (then), literally get the part out of there to a safe place, then to unburden (release)  the part from that time. Bring in the protector
