@@ -53,7 +53,9 @@
 		- These feels a lot like LS's strategies with me.
 			- notice the things that trigger us. e.g. looking at Trump why trigger? My need to control, bully?
 			- The self has a powerful desire to stand up to **injustice** -- cf. my present awareness. cf. what he calls "self" is what Buddhism calls "no-self".
+	- Danny did this with a therapist who made him actually address the parts. Takeaways then
 - chat
+  collapsed:: true
 	- 11:35:40 From shea watts he/him/his To Everyone:
 	  	I’m sorry to hear that. I’ll be praying for you and your family.
 	  	
