@@ -21,4 +21,4 @@
                           :page 1},
                :content {:text "Choose a trailhead that you are interested in exploring."},
                :properties {:color "green"}}],
- :extra {:page 1}}
+ :extra {:page 2}}
