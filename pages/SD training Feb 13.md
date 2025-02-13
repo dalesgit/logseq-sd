@@ -55,7 +55,7 @@
 			- notice the things that trigger us. e.g. looking at Trump why trigger? My need to control, bully?
 			- The self has a powerful desire to stand up to **injustice** -- cf. my present awareness. cf. what he calls "self" is what Buddhism calls "no-self".
 	- Danny did this with a therapist who made him actually address the parts. Takeaways then ... got to live with it, do therapy with it ...
-	- LS: as SD "when we encounter a part in SD, we are actually talking with the part ... not the person (self)"
+	- LS: as SD "**when we encounter a part in SD, we are actually talking with the part** ... not the person (self)"
 	  collapsed:: true
 		- SD questions for IFS
 			- what do you want me to know?
@@ -68,6 +68,7 @@
 			- Is there anything it needs you to do for it?
 			- Ask it ifyou can bring it with you to the now? If not, you can go to a fantasy.
 	- 2 way prayer: draw line. What do I say? What is God saying?
+	- **Whatever you resist ... persists**.
 - chat
   collapsed:: true
 	- 11:35:40 From shea watts he/him/his To Everyone:
