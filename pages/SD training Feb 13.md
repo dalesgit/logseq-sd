@@ -49,4 +49,4 @@
 			- Don't  try to get rid of the e.g. anxiety -- but get to know the part
 			- culture creating personas out of trauma
 			- "Don't tell me about your addiction, tell me about your pain." i.e. honor the pain order to discover new ways for the part to get what it needs
-			-
+			- in family therapy people didn't get well. But they talked about all these "parts". [This was the origin of Schwartz's theory.]
