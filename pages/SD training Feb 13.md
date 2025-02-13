@@ -16,5 +16,8 @@
 	- middle of forest
 	- as walking imagine a little ... up ahead bridge
 	- walk across it
+	- there is a meadow which brings peace and comfort
+	- bottom of feet large tree trunks
+	- bottome feet are roots going to source of life, deep into the soil source of life
 	-
 - Discussion
