@@ -32,4 +32,5 @@
 	- MY image began with the father in the forest
 	- the bridge is to provide some space with our current burdens
 - Discussion
-	-
+	- IFSAcan be a **tool** for SD not just for therapy.
+	- integration of mind, body, spirit
