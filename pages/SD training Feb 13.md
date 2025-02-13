@@ -3,4 +3,5 @@
 	- Craig is doing his thing at "the farm" ??
 	- Danny late
 	- allison: son and daughter in law divorcing. she's crushed.
+	- LS last night dream. loading tray at a buffet line. then she dropped the plate
 - Discussion
