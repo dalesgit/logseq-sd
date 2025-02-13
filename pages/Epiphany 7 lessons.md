@@ -1,4 +1,4 @@
-tags:: [[SendToLogseq]]://www.lectionarypage.net/YearC_RCL/Epiphany/CEpi7_RCL.html#ot1)
+tags:: [[preaching]] ://www.lectionarypage.net/YearC_RCL/Epiphany/CEpi7_RCL.html#ot1)
 * [1 Corinthians 15:35-38,42-50](https://www.lectionarypage.net/YearC_RCL/Epiphany/CEpi7_RCL.html#nt1)
 * [Luke 6:27-38](https://www.lectionarypage.net/YearC_RCL/Epiphany/CEpi7_RCL.html#gsp1)
 * [Psalm 37:1-12, 41-42](https://www.lectionarypage.net/YearC_RCL/Epiphany/CEpi7_RCL.html#ps1)
