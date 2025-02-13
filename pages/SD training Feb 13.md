@@ -27,5 +27,6 @@
 	- interested having relationship with all the parts of me
 	- sit for a moment in the curious self
 	- I am able to have compassion, others respond, compassionate self
-	- affirm that I am calm centered grounded abiity to not avoid emotion, have essence of healing and can transform pain by  my calm nature
+	- affirm that I am calm centered grounded ability to not avoid emotion, have essence of healing and can transform pain by  my calm nature
+	- MY image began with the father in the forest
 - Discussion
