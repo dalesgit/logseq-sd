@@ -62,7 +62,10 @@
 			- What age are you?
 			- True self: How do you feel towards part?
 			- Ask the part if it seneses you get it, understand? Can you tell the part all that you see. Is there more it wants you to know?
-	- 2 way prayer:
+			- ask permission to go the exile to be with it in the way it needs.
+			- Is there anything it needs you to do for it?
+			- Ask it ifyou can bring it with you to the now
+	- 2 way prayer: draw line. What do I say? What is God saying?
 - chat
   collapsed:: true
 	- 11:35:40 From shea watts he/him/his To Everyone:
