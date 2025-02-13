@@ -91,20 +91,4 @@
 	  	
 	  12:57:36 From shea watts he/him/his To Everyone:
 	  	Linda has engaged me in this way, and I found it very helpful. Learning to talk to parts of myself helped with my own self-estrangement.
-	- 11:35:40 From shea watts he/him/his To Everyone:
-	  	I’m sorry to hear that. I’ll be praying for you and your family.
-	  	
-	  11:38:51 From Rev. Esther Hethcox she|her To Everyone:
-	  	So sorry! On site at the church and had to put out a fire (metaphorically)
-	  	
-	  11:59:13 From shea watts he/him/his To Everyone:
-	  	Thank you
-	  	
-	  11:59:16 From shea watts he/him/his To Everyone:
-	  	<3
-	  	
-	  12:34:37 From shea watts he/him/his To Everyone:
-	  	Amazed by both sides of this conversation––gentle guidance and strong self-connection
-	  	
-	  12:51:48 From shea watts he/him/his To Everyone:
-	  	https://www.youtube.com/watch?v=UNtussFaYC0
+	- Bonnie White: self
