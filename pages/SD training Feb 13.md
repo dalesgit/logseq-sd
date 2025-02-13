@@ -8,4 +8,8 @@
 		- drs. rec'd a new radiation therapy
 			- proton radiation.. very targeted radiation. depends on what kind of  tumors he's got.
 	- group bonding work. Helpful to be able to put into words -- strengthens for do with SDee
+- Meditation practice
+	- Allison has heard it (on Sunday)
+	- relax
+	-
 - Discussion
