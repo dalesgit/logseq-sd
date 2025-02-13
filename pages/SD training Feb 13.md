@@ -11,5 +11,10 @@
 - Meditation practice
 	- Allison has heard it (on Sunday)
 	- relax
+	- land in body
+	- grounded meditation
+	- middle of forest
+	- as walking imagine a little ... up ahead bridge
+	- walk across it
 	-
 - Discussion
