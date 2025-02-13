@@ -41,3 +41,5 @@
 	- 30 min. link ... Becoming Whole: healing the exiled and rejected parts of ourselves
 		- natural state is to be **multiple**
 		- ask the **part**: "What do you want to know?" "What would happen if the part didn't work so hard?"
+		- Richard did a meditation with interviewer
+		-
