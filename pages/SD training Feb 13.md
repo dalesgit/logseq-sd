@@ -37,3 +37,5 @@
 	- IFS created by Schwarz (we'll watch video)
 		- he noticed people sitting with clients (many eating disorder), he kept hearing about **parts**. "There's a part of me that ..."
 	- Reading notes at [[Feb 11th, 2025]]
+- Video: Richard Schwartz
+	- 30 min. link ... Becoming Whole:
