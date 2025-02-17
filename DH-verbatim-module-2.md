@@ -22,3 +22,5 @@ https://docs.google.com/document/d/1h-Cqnk-wvt0BSiuCaPtiKd3iYTwOLKRxkH6NIeIzGwE/
 - I told also about how I had a commitment to myself as a priest, to always speak what I believe to be true. I told her I distrusted, speaking platitudes, because of how other people project onto representatives of Christians reflecting God.
 - ---
 - cf. exchange of emails Feb. 9
+
+cf. for some of the background /home/dale/Repositories/wiki-vim/journal/2025-02-08.md
