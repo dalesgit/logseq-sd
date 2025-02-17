@@ -6,7 +6,9 @@ tags: []
 
 [[pages/Manchin on Democrats as toxic.md]]
 
-[[SD-101 index]]
+## Spiritual Direction Training
 
-[SD/Good Teachers.md](SD/Good Teachers.md)
+- [[SD-101 index]]
+- [SD/Good Teachers.md](SD/Good Teachers.md)
+
 
