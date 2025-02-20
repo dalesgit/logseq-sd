@@ -4,9 +4,13 @@ aliases: []
 tags: []
 ---
 
-[[pages/Manchin on Democrats as toxic.md]]
+## politics
 
-[[SD-101 index]]
+- [[pages/Manchin on Democrats as toxic.md]]
 
-[SD/Good Teachers.md](SD/Good Teachers.md)
+## Spiritual Direction Training
+
+- [[SD-101 index]]
+- [SD/Good Teachers.md](SD/Good Teachers.md)
+- [[DH-verbatim-module-2.md]] 
 
