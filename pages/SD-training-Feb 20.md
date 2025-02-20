@@ -38,3 +38,5 @@
 - Common Spiritual Director parts include:
 	- listening for the invitation
 	- cf. screen shot
+	- cf. questions from the Self Workbook
+-
