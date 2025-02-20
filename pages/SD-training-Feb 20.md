@@ -28,4 +28,6 @@
 	- How to "unblend" ... look at it from a little distance
 	- Stay in the Enneagram patterns while they work -- until they don't
 - Verbatim
+	- cf. the screen shots on beelink
+	- the act of giving a title to the session
 	-
