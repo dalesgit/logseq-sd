@@ -34,3 +34,5 @@
 	- LS Is the "exile" always childhood? Rather a time when you were injured, painful, ... LS said it was eg. of unblending.
 	- My situation with Dick re. baseball and parents divorce.
 	- She will send a copy of the verbatim
+- Common Spiritual Director parts include:
+	-
