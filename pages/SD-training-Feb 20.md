@@ -15,4 +15,5 @@
 	- cf. when you had enough pain (cf. 12 steps)
 	- "Exile" is the wounded part
 	- **burden** is the thing that the parts carry
-	-
+	- SD task is to lead the part to let go the burden
+	- **shame ** is always bad.
