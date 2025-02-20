@@ -29,7 +29,7 @@
 	- Stay in the Enneagram patterns while they work -- until they don't
 - Verbatim
 	- cf. the screen shots on beelink
-	- the act of giving a title to the session
+	- **the act of giving a title to the session**
 	- LS repeats "She did the work"
 	- LS Is the "exile" always childhood? Rather a time when you were injured, painful, ... LS said it was eg. of unblending.
 	- My situation with Dick re. baseball and parents divorce.
