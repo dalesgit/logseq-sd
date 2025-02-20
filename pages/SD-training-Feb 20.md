@@ -41,3 +41,5 @@
 	- cf. questions from the Self Workbook
 - ![IFS Diagram - Sep 17 2020 - 6-14 PM.pdf](../assets/IFS_Diagram_-_Sep_17_2020_-_6-14_PM_1740075741770_0.pdf)
 - [Spiritual_Direction_Questions_for_IFS_1739932221318_0.docx](../assets/Spiritual_Direction_Questions_for_IFS_1739932221318_0_1740076076936_0.docx)
+- *In touch* ch. 4
+-
