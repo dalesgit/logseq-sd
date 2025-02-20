@@ -17,3 +17,4 @@
 	- **burden** is the thing that the parts carry
 	- SD task is to lead the part to let go the burden
 	- **shame ** is always bad.
+	- DH:
