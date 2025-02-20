@@ -4,7 +4,8 @@
 	- Shea is in Santa Fe thought he would be (spa day at the hotel)
 	- get stuck in the technique of IFS -- barrier? When in SD, no matter what, we are attempting to find the **invitation** that our feelings, thoughts, actions, are teaching. "A oneness with God."
 		- with God but also with the true self
-		- James Finley (CAC) Thomas Merton ...
+		- James Finley (CAC) Thomas Merton ... suffer from "depth perception deficit"
+		- what is the least resistance to the true self.
 - Notes
 - ![Presence Magazine IFS.pdf](../assets/Presence_Magazine_IFS_1740052798214_0.pdf)
 	- [[hls__Presence_Magazine_IFS_1740052798214_0]]
