@@ -24,4 +24,4 @@
 	- Bypassing moment: texting her siblings yesterday about the medical advice. Immediately bypassed her pain in their response. Saying **nice** ... what they're supposed to say, hope will get you a long way. (toxic positivity)
 	- "P" words as well as "C" words .. playfulness can show up as bypassing.
 	- self-leadership self-actualization in
-	- e.g.
+	- e.g. anger can give good juice -- when they're depressed -- but how does it burden? The whole of the person is not grief-stricken, other parts too.
