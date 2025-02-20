@@ -35,4 +35,5 @@
 	- My situation with Dick re. baseball and parents divorce.
 	- She will send a copy of the verbatim
 - Common Spiritual Director parts include:
-	-
+	- listening for the invitation
+	- cf. screen shot
