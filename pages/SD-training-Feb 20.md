@@ -7,7 +7,7 @@
 		- James Finley (CAC) Thomas Merton ... suffer from "depth perception deficit"
 		- what is the least resistance to the true self.
 		- reacquaint them with the touchstone that puts them in touch with the true self
-	- Music:
+	- Music: "I am light" india arie
 - Notes
 - ![Presence Magazine IFS.pdf](../assets/Presence_Magazine_IFS_1740052798214_0.pdf)
 	- [[hls__Presence_Magazine_IFS_1740052798214_0]]
