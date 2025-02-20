@@ -17,4 +17,5 @@
 	- **burden** is the thing that the parts carry
 	- SD task is to lead the part to let go the burden
 	- **shame ** is always bad.
-	- DH:
+	- DH: paying attention to "a **part** of me ... but"
+		- SH not always the word "part" but expressed maybe in "**should** ..."
