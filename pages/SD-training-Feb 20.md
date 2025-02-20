@@ -13,3 +13,6 @@
 	- [[hls__Presence_Magazine_IFS_1740052798214_0]]
 - One of LS verbatim where IFS was important.
 	- cf. when you had enough pain (cf. 12 steps)
+	- "Exile" is the wounded part
+	- **burden** is the thing that the parts carry
+	-
