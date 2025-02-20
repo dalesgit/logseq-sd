@@ -27,3 +27,5 @@
 	- e.g. anger can give good juice -- when they're depressed -- but how does it burden? The whole of the person is not grief-stricken, other parts too.
 	- How to "unblend" ... look at it from a little distance
 	- Stay in the Enneagram patterns while they work -- until they don't
+- Verbatim
+	-
