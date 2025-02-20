@@ -30,4 +30,5 @@
 - Verbatim
 	- cf. the screen shots on beelink
 	- the act of giving a title to the session
-	-
+	- LS repeats "She did the work"
+	- Is the "exile" always childhood? Rather a time when you were
