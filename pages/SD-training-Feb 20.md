@@ -32,3 +32,4 @@
 	- the act of giving a title to the session
 	- LS repeats "She did the work"
 	- LS Is the "exile" always childhood? Rather a time when you were injured, painful, ...
+	- My situation with Dick
