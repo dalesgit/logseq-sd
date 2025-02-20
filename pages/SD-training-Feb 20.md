@@ -18,7 +18,7 @@
 	- SD task is to lead the part to let go the burden
 	- **shame ** is always bad.
 	- DH: paying attention to "a **part** of me ... but"
-		- SH not always the word "part" but expressed maybe in "**should** ..."
+		- SLS not always the word "part" but expressed maybe in "**should** ..."
 		- e.g. Jim ... rather than advise re. how to get more prayer time, ask about the **part** that stays too busy
 	- Bypassing moment: texting her siblings yesterday about the medical advice. Immediately bypassed her pain in their response. Saying **nice** ... what they're supposed to say, hope will get you a long way. (toxic positivity)
 	- "P" words as well as "C" words .. playfulness can show up as bypassing.
