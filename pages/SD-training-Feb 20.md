@@ -20,4 +20,4 @@
 	- DH: paying attention to "a **part** of me ... but"
 		- SH not always the word "part" but expressed maybe in "**should** ..."
 		- e.g. Jim ... rather than advise re. how to get more prayer time, ask about the **part** that stays too busy
-	- Bypassing moment:
+	- Bypassing moment: texting her siblings yesterday about the medical advice. Immediately bypassed her pain
