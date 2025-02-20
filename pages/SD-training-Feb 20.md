@@ -39,4 +39,4 @@
 	- listening for the invitation
 	- cf. screen shot
 	- cf. questions from the Self Workbook
--
+- [idfs-diagram_1739293832153_0.edn](../assets/idfs-diagram_1739293832153_0_1740075688179_0.edn)
