@@ -39,4 +39,4 @@
 	- listening for the invitation
 	- cf. screen shot
 	- cf. questions from the Self Workbook
-- [idfs-diagram_1739293832153_0.edn](../assets/idfs-diagram_1739293832153_0_1740075688179_0.edn)
+- ![IFS Diagram - Sep 17 2020 - 6-14 PM.pdf](../assets/IFS_Diagram_-_Sep_17_2020_-_6-14_PM_1740075741770_0.pdf)
