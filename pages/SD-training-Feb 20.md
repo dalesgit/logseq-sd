@@ -1,3 +1,5 @@
 - Opening
 	- id:: 67b7565a-ea1a-485d-be1d-2e452f1044e1
 - Notes
+- ![Presence Magazine IFS.pdf](../assets/Presence_Magazine_IFS_1740052798214_0.pdf)
+	- [[hls__Presence_Magazine_IFS_1740052798214_0]]
