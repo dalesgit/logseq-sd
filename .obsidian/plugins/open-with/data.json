@@ -7,8 +7,8 @@
       "showInMenu": true
     },
     {
-      "name": "gvim",
-      "code": "gvim",
+      "name": "Code - OSS",
+      "code": "code",
       "arguments": "",
       "showInMenu": true
     }
