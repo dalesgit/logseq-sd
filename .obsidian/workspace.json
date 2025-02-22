@@ -98,8 +98,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300,
-    "collapsed": true
+    "width": 300
   },
   "right": {
     "id": "451536d5728af02d",
@@ -190,10 +189,10 @@
       "table-editor-obsidian:Advanced Tables Toolbar": false
     }
   },
-  "active": "e89a4ac03749fc25",
+  "active": "00db92897b534b31",
   "lastOpenFiles": [
-    "original-karen-notes.md",
     "DH-verbatim-module-2.md",
+    "original-karen-notes.md",
     "SD-training-Feb 20.md",
     "2025-02-20.md",
     "assets/Verbatim Rev Jean - Jun 29 2020 - 6-13 PM.pdf",

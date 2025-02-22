@@ -36,3 +36,10 @@ My Lord God, I have no idea where I am going. I do not see the road ahead of me.
 
 ---
 
+Within a few days I forwarded K. an email from the parish priest titled "New source of encouragement". There was a link to a video titled "How to win the battle of ideas." My message to her was: 
+
+Peter just sent this to Mary Pat and me. Apart from its apparent value -- which seems considerable to me -- I was struck by how it dovetailed with the core of our conversation today -- having to do with language and rhetoric. In effect it seems to rephrase some of what we concluded with to something like, "Every Time we tell the truth -- "model truth-telling" -- in the face of an offensive culture of lying -- we are striking a blow against that oppressive culture. Thought you would appreciate it. Shalom.
+
+She responded back, writing:
+
+Dale, I listened to this and started thinking blog or podcast or vlog. . . When I was paged from the bath to run interference from the 3 year old while daughter cooks dinner.  I do need to free up my time and space. . .
