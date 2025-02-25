@@ -14,7 +14,9 @@ tags: []
 - [SD/Good Teachers.md](SD/Good Teachers.md)
 - [[DH-verbatim-module-2.md]] 
 
-## Details
+## Details 
+
+[[SD/training participants.md|training participants]]
 
 Linda Serepca <lindaserepca10@gmail.com>
 to:	ninawynn <ninawynn@aol.com>,
@@ -25,3 +27,4 @@ Alison Messick-Watkins <revallieo@gmail.com>,
 Esther Hethcox <e.hethcox@firstpres-durham.org>,
 Shea Watts <Shea.Watts@covenantpresby.org>,
 Danny Trapp <dtrapp@carolina.rr.com>
+

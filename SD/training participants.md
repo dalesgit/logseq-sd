@@ -7,6 +7,9 @@ tags:
 date: "2024-09-26"
 title: training participants
 ---
+
+[[/index.md|politics]]
+
 # training participants
 ## Cherie- 
 - has a certify from Columbia spiritual formation vs. spiritual direction
