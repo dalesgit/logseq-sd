@@ -18,6 +18,8 @@
 	- dialog with your inner critic
 	- Alison: in therapy a tapping on your head when you work with early traumatic experiences. thoughts and feelings are energy that can get stuck. Tapping is releasing the energy. (Chinese?) cp. EST, Danny (tones, vibration)
 	- Nina & Danny have done tapping
+	- Nina has done acupuncture
 	- Reiki ??
-	-
+		- Reiki is ==a Japanese healing technique that uses gentle touch to promote relaxation and balance energy in the body==. It's also known as Reiki energy, therapeutic touch, or the Usui system of Reiki.
+		- good for before and after surgeries
 -
