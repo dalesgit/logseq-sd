@@ -1,4 +1,4 @@
-- Ch. 4
+## Ch. 4
 	- witnessing to what's going on, to our thought
 	- Is it different for women?
 	- Where do we carry our feelings? in our body?
