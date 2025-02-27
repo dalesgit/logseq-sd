@@ -29,7 +29,7 @@ collapsed:: true
 			- Shea wants to silence the inner critic. Mayra encourages dialog with
 	- SD needs to keep an index file of therapists for making referrals
 		- know your own boundaries cp. know when a person needs more therapy
-		- she shared with group the help that sertraline has been for him.
+		- she shared with group the help that sertraline has been for him. Generic Zoloft
 			- Sertraline (Zoloft) 
 			  is a medication used for depression, panic disorders, 
 			  obsessive-compulsive disorder (OCD), social anxiety disorder (SAD), 
