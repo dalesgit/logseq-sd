@@ -12,3 +12,4 @@
 	- **Heart is closer to the truth than the head**
 		- daily practice of **focusing** as discussed in the chapter
 	- Our thoughts as well as our feelings are not **who we are**
+	- bio-physical focusing, so-collage, centering prayer, inner child work, IFS, any creating express
