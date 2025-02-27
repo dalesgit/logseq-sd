@@ -12,7 +12,7 @@
 - [[2024-11-01]]gs
 - [[SD session Oct 31]]
 - [[SD session Oct 24]]
-	- [[2024-10-25]]
+	- [[2024-10-25]]ghgh
 - [[SD session Oct 10]]
 - [[SD session Oct 3]]
 - [[SD session  27 Sep 2024]]
