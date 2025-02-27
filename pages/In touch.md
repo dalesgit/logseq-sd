@@ -2,4 +2,6 @@
 	- witnessing to what's going on, to our thought
 	- Is it different for women?
 	- Where do we carry our feelings? in our body?
-	-
+	- Limiting beliefs.
+	- when our body is responding to us (cf. Whitehead) it is often **yelling**
+	- look for constriction and expanding
