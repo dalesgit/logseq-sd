@@ -1,4 +1,5 @@
 ## Ch. 4
+collapsed:: true
 	- witnessing to what's going on, to our thought
 	- Is it different for women?
 	- Where do we carry our feelings? in our body?
@@ -12,6 +13,7 @@
 	- **Heart is closer to the truth than the head**
 		- daily practice of **focusing** as discussed in the chapter
 - ## techniques
+  collapsed:: true
 	- Our thoughts as well as our feelings are not **who we are**
 	- bio-physical focusing, soul-collage, centering prayer, inner child work, IFS, any creating expression (**Carol next session**)
 	- visual journaling
@@ -35,5 +37,5 @@
 			  post-traumatic stress disorder (PTSD), and premenstrual dysphoric 
 			  disorder (PMDD).
 	- witnessing of thought as thought
-	- ## focussing
-		-
+- ## focussing
+	-
