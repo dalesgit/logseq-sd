@@ -11,4 +11,4 @@
 		- e.g. she's introvert, doesn't like to talk, when people talk and talk so much ... irritating
 	- **Heart is closer to the truth than the head**
 		- daily practice of **focusing** as discussed in the chapter
-		-
+	- Our thoughts as well as our feelings are not **who we are**
