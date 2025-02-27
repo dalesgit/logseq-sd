@@ -39,4 +39,5 @@ collapsed:: true
 	- witnessing of thought as thought
 - ## focussing
 	- Biospiritual focusing cf. screenshot
-	-
+	- can be done in a session with the SDee
+	- will email
