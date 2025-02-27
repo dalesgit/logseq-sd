@@ -6,4 +6,5 @@
 	- when our body is responding to us (cf. Whitehead) it is often **yelling**
 	- look for constriction and expanding
 		- Do I feel open about ... Am I shrinking back from ...
-	- Craig
+	- Craig said that it was similar to the Welcoming Prayer (that he seemed familiar with)
+	- projection
