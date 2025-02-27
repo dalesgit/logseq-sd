@@ -7,5 +7,5 @@
 	- look for constriction and expanding
 		- Do I feel open about ... Am I shrinking back from ...
 	- Craig said that it was similar to the Welcoming Prayer (that he seemed familiar with)
-	- projection of what we see in others, judge in others -- something you hate about yourself
-		- e.g. she's introvert, doesn't like to talk, when people talk and talk
+	- **projection of what we see in others, judge in others** -- something you hate about yourself
+		- e.g. she's introvert, doesn't like to talk, when people talk and talk so much ... irritating
