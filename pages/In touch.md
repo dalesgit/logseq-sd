@@ -34,4 +34,6 @@
 			  obsessive-compulsive disorder (OCD), social anxiety disorder (SAD), 
 			  post-traumatic stress disorder (PTSD), and premenstrual dysphoric 
 			  disorder (PMDD).
-	- witnessing
+	- witnessing of thought as thought
+	- ## focussing
+		-
