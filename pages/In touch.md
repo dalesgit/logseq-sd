@@ -28,3 +28,10 @@
 			- Shea wants to silence the inner critic. Mayra encourages dialog with
 	- SD needs to keep an index file of therapists for making referrals
 		- know your own boundaries cp. know when a person needs more therapy
+		- she shared with group the help that sertraline has been for him.
+			- Sertraline (Zoloft) 
+			  is a medication used for depression, panic disorders, 
+			  obsessive-compulsive disorder (OCD), social anxiety disorder (SAD), 
+			  post-traumatic stress disorder (PTSD), and premenstrual dysphoric 
+			  disorder (PMDD).
+	- witnessing
