@@ -38,4 +38,5 @@ collapsed:: true
 			  disorder (PMDD).
 	- witnessing of thought as thought
 - ## focussing
+	- Biospiritual focusing cf. screenshot
 	-
