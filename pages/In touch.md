@@ -1,2 +1,3 @@
 - Ch. 4
+	- witnessing to what's going on, to our thought
 	-
