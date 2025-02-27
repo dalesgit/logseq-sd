@@ -30,4 +30,4 @@
 - [[SD training Feb 13]]
 - [[SD-training-Feb 20]]
   id:: 67b720b7-2134-4d46-881d-7100fa1a509a
--
+- [[2025-02-27]]
