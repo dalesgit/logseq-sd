@@ -9,4 +9,6 @@
 	- Craig said that it was similar to the Welcoming Prayer (that he seemed familiar with)
 	- **projection of what we see in others, judge in others** -- something you hate about yourself
 		- e.g. she's introvert, doesn't like to talk, when people talk and talk so much ... irritating
-	-
+	- **Heart is closer to the truth than the head**
+		- daily practice of **focusing** as discussed in the chapter
+		-
