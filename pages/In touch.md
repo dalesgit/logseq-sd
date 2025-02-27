@@ -15,4 +15,4 @@
 	- bio-physical focusing, soul-collage, centering prayer, inner child work, IFS, any creating expression (**Carol next session**)
 	- visual journaling
 	- dialog with your inner critic
-	- Alison: in therapy a tapping on your head when you work with early traumatic experiences
+	- Alison: in therapy a tapping on your head when you work with early traumatic experiences. thoughts and feelings are energy that can get stuck. Tapping is releasing the energy. (Chinese?)
