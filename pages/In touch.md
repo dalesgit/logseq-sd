@@ -14,3 +14,4 @@
 	- Our thoughts as well as our feelings are not **who we are**
 	- bio-physical focusing, soul-collage, centering prayer, inner child work, IFS, any creating expression (**Carol next session**)
 	- visual journaling
+	- dialog with your thoughts
