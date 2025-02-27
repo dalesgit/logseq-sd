@@ -26,3 +26,4 @@
 		- Mayra soul-collage  e.g. image of inner critic
 		- then **dialogue** with it
 			- Shea wants to silence the inner critic. Mayra encourages dialog with
+	- SD needs to keep an index file of therapists for making referrals
