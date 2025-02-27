@@ -23,5 +23,6 @@
 		- Reiki is ==a Japanese healing technique that uses gentle touch to promote relaxation and balance energy in the body==. It's also known as Reiki energy, therapeutic touch, or the Usui system of Reiki.
 		- good for before and after surgeries
 	- Inner critic wants to keep me safe -- but it can be limiting
-		- Maya soul-collage  e.g. image of inner critic
+		- Mayra soul-collage  e.g. image of inner critic
 		- then **dialogue** with it
+			- Shea wants to silence the inner critic. Mayra encourages dialog with
