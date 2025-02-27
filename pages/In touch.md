@@ -22,4 +22,4 @@
 	- Reiki ??
 		- Reiki is ==a Japanese healing technique that uses gentle touch to promote relaxation and balance energy in the body==. It's also known as Reiki energy, therapeutic touch, or the Usui system of Reiki.
 		- good for before and after surgeries
--
+	- Inner critic wants to keep me safe --
