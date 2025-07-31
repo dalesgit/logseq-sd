@@ -5,11 +5,9 @@
 	- Danny called to serve at a church in York, SC
 	- Allison has a sick grand child
 - Music
-  collapsed:: true
 	- "Official Ignatian Prayer (self-offering) by St. Louis Jesuits "Take Lord Receive". LS was excited when they arrived on the scene in 60's
 	- Your love is enough for me from Earthen Vessels. (John Foley)
 - Christine Pea/rson, resident Ignatian expert. St. Peter's since 2007
-  collapsed:: true
 	- Teaching at the center for many years
 	- Leader of the team at the center, 4-6 week program open to everyone
 	- led 14 people through exercises (ea 9 mos.)
@@ -22,7 +20,6 @@
 	- Ign. Here is this God pokeing around in my life in all kinds of ways. If He desires a relationship, the goal of my life is "how do I deepen my life with this God of mine" -- rather than the image of God as a great teacher, examiner in the sky.
 	- "It's a 3-legged race" -- trying to take charge, we trip, if together, wind at the back.
 - Examen prayer
-  collapsed:: true
 	- If you don't pray anything else ... more than 1 per day. Check-in with God. (not examen of conscience) rather an examen of consciousness.
 	  collapsed:: true
 		- cf. apps on phone etc.
@@ -62,7 +59,6 @@
 	- How is God talking to that person (not how does God talk to me)?
 	- Where do I move? Ask "where are you going to feel closest to God?"
 - Ignatius compass, principle and foundation
-  collapsed:: true
 	- Exercises
 	  collapsed:: true
 		- week 1 **love of God** **look at sin** where do I fall away?
@@ -82,7 +78,6 @@
 	- you're feeling uncomfortable
 	- **notice, get curious, wonder** ... (LS) -- *I was remember how significant that habit was in the last day as I prepared for today's class.*
 - Consolation / Desolation
-  collapsed:: true
 	- Louise case study
 	- testing the insights from above
 	- Where are the fruits? Sit with it.
