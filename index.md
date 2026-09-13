@@ -4,6 +4,12 @@ aliases: []
 tags: []
 ---
 
+${query[[from p = index.tag "page" 
+where p.created:startsWith("2026") 
+order by p.created desc limit 10
+select templates.pageItem(p)
+]]}
+
 ## politics
 
 - [[pages/Manchin on Democrats as toxic.md]]
