@@ -2,6 +2,7 @@
 
 [[Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf]]
 [[Enneagram-Ways-Of-Knowing---Oct-3-2024---2-22-PM-g6q1x_ocr.pdf]]
+
 - CH: sense that many of us have some sense of Enneagram.
 	- catch up hurricane news
 	- why Enneagram: personal? professional?
